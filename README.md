@@ -12,3 +12,5 @@
 
 ## Lifestudy of Mark
 - [Msg1](ls-mark-1.md)
+- [Msg2](ls-mark-2.md)
+
