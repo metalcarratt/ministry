@@ -14,3 +14,6 @@
 - [Msg1](ls-mark-1.md)
 - [Msg2](ls-mark-2.md)
 
+## Crystallization-Study of Joshua, Judges and Ruth
+
+- [Message 4](2021_crystal_1/msg4.md)
