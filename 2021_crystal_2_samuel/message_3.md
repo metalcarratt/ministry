@@ -95,5 +95,46 @@ Qs
 3. Provide the reasons why Samuel could be considered the acting God on earth.
 4. Explain the five statuses in which Samuel ministered as God's representative.
 
+---
 
+#### Describe the Nazarite vow
+
+Four things:
+- abstain from wordly enjoyment
+- a person wholly subjected to headship. Not only to the head but also deputy authorities
+- cut off all natural affection
+- separated from death (death more defiling than sin)
+
+The nazarite was needed because of the degredation among God's people at that time. The same is true today. God needs ones who would voluntarily consecrate themselves to be such ones.
+
+#### How was Samuel taught by Eli the way to minister to God?
+
+- positively he learned how to listen to God
+- negatively he saw many negative examples and the punishment of God for those things that served as a warning to him
+
+Our position as a servant is to stand at the doorpost with an open ear. We cannot serve him without listening and waiting for His command. Anything not out of His command is presumptuous. We need His instant speaking, the rhema word to us.
+
+Samuel remained pure when surrounded by many negative exanples. He took the things he saw as warnings of how not to behave, and these became a safeguard to him for his whole life.
+
+
+
+#### Provide the reasons why Samuel could be considered the acting God on earth.
+
+- Samuel's heart and being were one with God
+- he was absolutely one with God
+- he had nothing else to live for, no other future aspirations
+- he did not have his own preference and only wanted what was in God's heart
+- he considered it a sin not to pray for God's people, God's treasure
+
+Do we aspire to this? We need to aspire to this! Pray for the Lord to perfect us in this way. Samuel was not in a good environment but he allowed God to perfect him in such a way. This was for God's move.
+
+#### Explain the five statuses in which Samuel ministered as God's representative.
+
+- nazarite - absolutely consecrated
+- priest - he spoke the word of God which was the role of the priest
+- prophet - he brought in the prophethood. With Samuel the word of God was not rare.
+- judge - in the reality of the kingship
+- man of prayer
+
+A priest is someone who brings man to God and God to man. As a man of prayer, Samuel brought the people to God in his prayers. As a prophet he brought God's word to man, and as a judgr he brought God's ruling to man. Thus he carried out this two way traffic required as a priest. Furthermore he was a nazarite, absolutely consecrated to God. He could represent God on earth, even be the acting God, because with him there was no self interest or expression. He was a pure vessel through which God could express Himself and His intention.
 
