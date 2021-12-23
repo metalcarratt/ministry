@@ -22,7 +22,7 @@ The Israelites all considered the Ark as God's presence. Where the Ark went, God
 
 Center and content of the tabernacle. Christ as the center and content of the church. Christ occupies the place of pre-eminence in the church.
 
-We could say Christ is our center but no glory. We could lose the tabernacle. We need to make sure in our Christian life, church life, service, Christ is our center. Don't be tempted just to pray in perfunctory way. Always be on guard. In all our service Christ must be the center.
+We could say Christ is our center but no glory. We could lose the tabernacle. **We need to make sure** in our Christian life, church life, service, **Christ is our center**. Don't be tempted just to pray in perfunctory way. Always be on guard. In all our service Christ must be the center.
 
 The law is not just a set of commands. The law is a testimony. The law tells us what God is like. Christ is the definition, the description of God the explanation of God. If you want to know God look at Christ. If you want to know what God's like, come to the church. But only if Christ is our center and our content.
 
@@ -34,7 +34,7 @@ Apart from Christ there is no way to contact God. In the Holy of Holies is only 
 
 2 Tim 4:22, the Lord be with your spirit.
 
-Have you had much realisation that he's the indwelling Ark? The Ark is crucial. A key verse is Exo. 25:22, *And there I will meet with you and speak with you from above the expiation cover, from between the two cherubum ... there I will meet with you.* The Lord only meets with us on Christ. We need to know where 'there' is. In our spirit.
+Have you had much realisation that he's the indwelling Ark? The Ark is crucial. A key verse is Exo. 25:22, *And there I will meet with you and speak with you from above the expiation cover, from between the two cherubum ... there I will meet with you.* **The Lord only meets with us on Christ**. We need to know where 'there' is. In our spirit.
 
 Many verses from the gospels show the Lord's humanity with its character and standing. If you would spend time to read through you will see the beautiful humanity of Christ.
 
@@ -138,19 +138,29 @@ The Lord is recovering the original position but working to make it expanded and
 
 # Qs
 
-1. What are the five key words related to the Ark, and what is the spiritual significance of each one?
+## 1. What are the five key words related to the Ark, and what is the spiritual significance of each one?
 
 center, content, wood, gold, cover
 
-- center and content: God is the center of the tabernacle and it's content. Christ is the reality of the tabernacle, the church and our human being.
+- center and content: God is the center of the tabernacle and it's content. Christ is the reality of the tabernacle, the church and our human being. We need to make sure Christ is our center. The Ark was the presence of Jehovah. If we do not have the Ark as our center, we do not have God, and our Christian life and church life is Christ-less, Ark-less.
 - wood and gold: the human and divine natures of Christ. Wood is the uplifted perfect humanity as the base and gold is the divine nature.
 - cover: the propitiation place, enabling us to come forward to God
 
-2. Why is having a proper humanity important in relation to the church being God's testimony?
+## 2. Why is having a proper humanity important in relation to the church being God's testimony?
 
-Humanity is the basis for God's expression.
+Wood and gold, humanity and divinity are the two key materials for the Ark as the testimony of God. If we do not have the proper humanity we do not have the Ark and therefore we do not have the testimony.
 
-1. Explain how in our experience the function and usefulness of the Ark are altogether dependent on the propitiatory cover (in your answer, include references to the "two cherubim of gold" and the "blood of sprinkling").
-2. Explain how the history of the Ark and the tabernacle is a prefigure of church history, giving us a full portrait of the course and situation of the church from the very beginning to the present time in your answer, include the give main aspects of this history).
-3. How can we ensure that we would not be persons who usurp God but, rather, be persons, like Hannah and Samuel, according to God's heart and for His economy?
+Humanity is the basis for God's expression. The gold is God's glory, and all you could see in the tabernacle is the shining of God's glory, but without the wood that gold would not be able to stand. Humanity is the base for God's expression to stand.
+
+Satan's main attack today is against the young people, and his main attack against the young people is against their humanity, especially attacking their mentality. Satan sees how crucial humanity is. By attacking humanity he is attacking the testimony. We need such a proper humanity to have God's testimony in the church!
+
+## 3. Explain how in our experience the function and usefulness of the Ark are altogether dependent on the propitiatory cover (in your answer, include references to the "two cherubim of gold" and the "blood of sprinkling").
+
+The Ark contains the law of God which judges and condemns us. The two cherubim of gold represent God's glory, which we cannot match. However the propitiatory cover covers the law of God and is in view of the cherubim. The blood of sprinkling is brought from the altar into the Holy of Holies and sprinkled on the cover and before it. So the cherubim can see this blood. What God sees is the cover, not us. Therefore we are spared God's judgment.
+
+
+
+## 4. Explain how the history of the Ark and the tabernacle is a prefigure of church history, giving us a full portrait of the course and situation of the church from the very beginning to the present time in your answer, include the five main aspects of this history).
+
+## 5. How can we ensure that we would not be persons who usurp God but, rather, be persons, like Hannah and Samuel, according to God's heart and for His economy?
 
