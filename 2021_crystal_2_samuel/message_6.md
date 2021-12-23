@@ -214,13 +214,17 @@ We have been called to bless others, so we, as a blessed people, should always b
 
 ## 1. What is the intrinsic significance of David's seeing God's sovereignty and his learning the lessons of the cross, and how does it apply to our personal experience?
 
-Under God's sovereignty David was tested in the battle with Goliath and trained by being put with Saul. This testing and training:
+Under God's sovereignty David was tested in the battle with Goliath and trained by being put with Saul. Through this testing and training:
 
 - He learned humility, being born the last of eight sons; even his father held him in low esteem
 - He had confidence in God from his time guarding the sheep
 - He learned not to be affected by praise
 - He learned authority by submitting to God's deputy authority even though he was trying to kill him
 - He was broken, learning the lessons of the cross
+
+We need to recognise God's hand in all our environmental situations and submit ourselves under his dealing.
+This will become a training to us to keep us in the way of life and qualify us to be co-kings with Christ.
+
 
 ## 2. How did David care for God's habitation on earth, the habitation of the Ark of God, and how does this apply to us?
 
