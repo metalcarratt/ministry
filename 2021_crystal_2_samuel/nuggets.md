@@ -1,0 +1,31 @@
+# Nuggets
+
+## Message 1
+
+### Hannah's prayer
+
+Hannah was forced to pray a desperate prayer, motivated by God secretly. She prayed for a man-child who would be absolute for God on earth. There was another wife with children who mocked her. She wanted to be a mother but the Lord would not listen to an ordinary prayer. The Lord realised if He waited long enough she would be inwardly uplifted and her prayer would change to one that could turn the age. Her prayer matched God's move and intention. "If you give me a son I will consecrate him to be a Nazarite."
+
+### Divine Trinity as the structure
+
+The Divine Trinity was involved in bringing forth Samuel.
+
+1. The offerings which are a type of Christ as our reality, which Hannah brought year by year to offer to God, and enabled her to come forward to God in prayer.
+2. The tabernacle which is a type of Christ as the embodiment of God, as the place Hannah could come to pray to God and pour our her heart.
+3. The Spirit moving in Hannah to make a desperate prayer.
+
+It's not possible for us to pray as Hannah did by ourselves. We need to strengthening of the Divine Trinity. We need Him. He will transmit His burden, feeling into us.
+
+### Cooperation ?
+
+
+
+
+
+### Kingdom of God
+
+Gods purpose is to have a kingdom in the land. Everything is for this. The land, the building, the temple. The labouring on the land and the produce of the land. The kingdom is a realm, a sphere in which He is expressed in order to have His intention. God wants an expression, but this expression needs a proper realm in which He can be expressed. In the coming age that kingdom will be the whole earth. Eventually God will require a new heaven and new earth as the realm for His expression.
+
+Hannah and Samuel were both for the kingdom. Their prayer and their cooperation with God was so that He could bring in the kingdom. They fulfilled an urgent need of the Lord's. Wouldn't it be a blessing if the Lord could say your life was useful in bringing in His kingdom? It would give meaning to your whole life.
+
+Saul wanted a monarchy for himself. David was led through years of preparation to be the king - opposition, suffering, dealings.
