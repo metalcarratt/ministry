@@ -1,12 +1,20 @@
 ```
+Em F G Am
    God's pur-pose is / to have a king-dom
+Em F G Am
    A realm / in which / He can be expressed
+Em F G Am
    All He does / is for / Him working out His goal
+Em F G C
    All the land, / offerings / and the building is for this
 
+C Em F C
 1. God needs ones who / will cooperate with Him
+Am Em F G
    Who are bound, / one in heart, / inseperable from Him
+C Em F C
    Having one life, / one living, one goal
+F G F-G C
    Working in / the principle of incarnation
 
 2. Hannah was one / with an ordinary need
