@@ -25,7 +25,7 @@ F G F-G C
 3. God is Triune / to supply us with Himself
    He's the land, / and the lamb / and God's dwelling place
    He shed His blood, / As the Spirit turned our heart
-   Brought us within the veil / to converse before His face
+   Brought us within the veil / to converse face to face
 ```
 
 
