@@ -18,9 +18,9 @@ F G F-G C
    Working in / the principle of incarnation
 
 2. Hannah was one / with an ordinary need
-   But all things / worked to drive / her deeper in God
+   But all things / worked to drive / her deeper with God
    God waited till / she would pray for His move
-   And she prayed / for a man-child, / to be fully for Him
+   And she prayed / for a man, / consecrated to Him
 
 3. God is Triune / to supply us with Himself
    He's the land, / and the lamb / and God's dwelling place
