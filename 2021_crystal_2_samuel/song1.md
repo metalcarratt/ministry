@@ -26,6 +26,11 @@ F G F-G C
    He's the land, / and the lamb / and God's dwelling place
    He shed His blood, / As the Spirit turned our heart
    Brought us within the veil / to converse face to face
+
+4. Lord, make us ones / who would pray for your move
+   Casting all on You / in fellowship
+   Seeking Your heart; those who'd give themselves to You
+   To bring in Your kingdom under your kingship
 ```
 
 
