@@ -9,9 +9,9 @@ Em F G C
    All the land, / offerings / and the building are for this
 
 C Em F C
-1. God needs ones who / will cooperate with Him
+1. God needs ones / who'll cooperate with Him
 Am Em F G
-   Who are bound, / one in heart, / inseperable from Him
+   Who are bound, / one in heart, / inseperable
 C Em F C
    Having one life, / one living, one goal
 F G F-G C
