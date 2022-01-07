@@ -4,9 +4,9 @@ Em F G Am
 Em F G Am
    A realm / in which / He can be expressed
 Em F G Am
-   All He does / is for / Him working out His goal
+   All He does / is for / His working out this goal
 Em F G C
-   All the land, / offerings / and the building is for this
+   All the land, / offerings / and the building are for this
 
 C Em F C
 1. God needs ones who / will cooperate with Him
