@@ -39,5 +39,6 @@ It's not possible for us to pray as Hannah did by ourselves. We need to strength
 she was afflicted and bitter in soul. she was pouring out her soul before Jehovah. out of the greatness of her anxiety and provocation. we all need to do this daily. tell the lord everything that is bothering us. conversations where we are genuine with the Lord. that's when the lord will deal with things in our being.
 hannah received Eli's word "go in peace and may god hear your request" and her countenance was sad no more. she believed what eli had said. the result of her honest conversation with the Lord. in due time she conceived and bore a son.
 
-
-
+### zion, the overcomers
+the strengthening and beauty of the church
+the overcomers are the beachhead through which the lord will return to possess his kingdom. normandy a picture of this. "fight for the first 200 yards"
