@@ -36,24 +36,34 @@ It's not possible for us to pray as Hannah did by ourselves. We need to strength
 ## Message 2
 ### the hannah ministry vs the peniniah ministry
 hannah ministry - to bring in the king
+
 peniniah ministry - to have many children
+
 this is the way of the LR vs the way of christianity with the great tree
+
 hannah's way is not an easy way. Rev 12:10, suffering to bring forth the man child
 
 ### pouring out soul
 she was afflicted and bitter in soul. she was pouring out her soul before Jehovah. out of the greatness of her anxiety and provocation. we all need to do this daily. tell the lord everything that is bothering us. conversations where we are genuine with the Lord. that's when the lord will deal with things in our being.
+
 Exo 15, marah - God showed him a tree and he cast it in the waters and the waters became sweet. The tree is the tree of life and the cross. pouring out our heart is our casting this tree into our bitter situation
-pas 62:8 pour out your heart before him
+Psa 62:8 pour out your heart before him
+
 speak genuinely, not preteniously - whether angry happy or sad. sometimes our complaining is our best prayer
+
 hannah received Eli's word "go in peace and may god hear your request" and her countenance was sad no more. she believed what eli had said. the result of her honest conversation with the Lord. in due time she conceived and bore a son.
 
 ### zion, the overcomers
 the strengthening and beauty of the church
+
 the overcomers are the beachhead through which the lord will return to possess his kingdom. normandy a picture of this. "fight for the first 200 yards"
 
 ### prayer for the nazarites
 pray to bring forth more nazarites. pray for the bringing in of the king with the kingdom through these nazarites
+
 Hannah's prayer an echo, a cooperation with the divine move
+
 our prayers should bring in the overcomers. how much have we done this? both for ourselves and for others
+
 Sister Barber produced one overcomer. she lived for the Lord's second coming. (Because of her, we are all here today.)
 
