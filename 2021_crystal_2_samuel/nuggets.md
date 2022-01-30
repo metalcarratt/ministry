@@ -67,3 +67,13 @@ our prayers should bring in the overcomers. how much have we done this? both for
 
 Sister Barber produced one overcomer. she lived for the Lord's second coming. (Because of her, we are all here today.)
 
+
+## Message 3
+### The side door (the Nazarite vow) is opened
+Samuel was not of the line of priests - he was a descendent of Korah the rebel. But in God's provision there was a "side door", a "back-up plan" in case the priesthood failed. That side door was the Nazarite vow. It qualified someone to become a priest. The priesthood did fail, and Samuel gained the right to become a priest. The same is true today. Christianity has failed. God has opened the way for us, the to be overcomers by being Nazarites.
+
+### Learning to listen
+Samuel learned from Eli how to listen to God. When we go before the Lord the more important thing is to listen than to speak. The slave had his ear bored through. His position is to listen to the master's words. All our service should come out from the Lord's direct speaking to us. Anything else is presumptous. In those days the Word of God was rare. But not to Samuel, because he had an opened ear.
+
+### Learning from the negative examples
+Samuel saw many negative examples. Instead of being affected by them he observed and learned what not to do. He also saw God's punishment on those who practiced in that way. Such an observation was a preservation to him.
