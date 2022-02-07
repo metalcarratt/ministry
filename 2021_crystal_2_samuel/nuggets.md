@@ -86,6 +86,7 @@ As a Nazarite - absolute for God. He had not future ambitions or aspirations. He
 As a Priest - He spoke the Word of God, which was the role of the priest. What God's people needed was God's speaking. God's word was rare at those times. But not to Samuel.
 
 As a Prophet - supplementing the kingship, as a supervision, support, help and observation. 
-As a Judge - Samuel was not the king but he provided the by-laws and constitution of the kingdom.
+
+As a Judge - In the reality of the kingship. Samuel was not the king but he provided the by-laws and constitution of the kingdom.
 
 As a man of prayer - He said far be it from me to sin against Jehovah by ceasing to pray for you. He had a heart for God's people and considered not praying a sin.
