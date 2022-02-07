@@ -77,3 +77,16 @@ Samuel learned from Eli how to listen to God. When we go before the Lord the mor
 
 ### Learning from the negative examples
 Samuel saw many negative examples. Instead of being affected by them he observed and learned what not to do. He also saw God's punishment on those who practiced in that way. Such an observation was a preservation to him.
+
+Samuel learned to be under God's arrangement and wait on Him. He did not try to escape from the negative environment or change it. He was not in rebellion or revolution but partaking of revelation.
+
+### Samuel was the acting God on earth
+As a Nazarite - absolute for God. He had not future ambitions or aspirations. He existed only to carry out what was in God's heart.
+
+As a Priest
+
+As a Prophet - supplementing the kingship, as a supervision, support, help and observation. What God's people needed was God's speaking. God's word was rare at those times. But not to Samuel.
+
+As a Judge - Samuel was not the king but he provided the by-laws and constitution of the kingdom.
+
+As a man of prayer - He said far be it from me to sin against Jehovah by ceasing to pray for you. He had a heart for God's people and considered not praying a sin.
