@@ -1,4 +1,4 @@
-# Song 2
+# Poem 2
 ```
 Hannah's way is to bring in the King
 It's the narrow path, the way of suffering
