@@ -120,3 +120,19 @@ Furthermore, day by day she was waiting for the Lord's coming back. On the last 
 
 It was through M. E. Barber that he received the foundation of his spiritual life. Brother Nee would tell people that it was through a sister that he got saved, and it was also through a sister that he was edified. As a British person from the Western world, Sister Barber came to know the famous spiritual giants in Christianity at her time. Through Sister Barber, Brother Nee came to know the top spiritual books by people such as Robert Govett, D. M. Panton, and Jessie Penn-Lewis. The best publications on the exposition of the Bible and church history were introduced to Brother Nee through her.
 (The History of the Church and the Local Churches, Chapter 4, Section 2)
+
+#### 29
+Miss M. E. Barber once wrote a hymn that says:
+
+>    There is always something over,
+>    When we taste our gracious Lord;
+>    Every cup He fills o'erfloweth,
+>    Rich supply He doth afford.
+>    Nothing narrow, nothing stinted,
+>    Ever issued from His store;
+>    To His own He gives full measure,
+>    Running over, evermore,
+>    To His own He gives full measure,
+>    Running over, evermore.
+>
+>    (Hymns, #595, stanza one)
