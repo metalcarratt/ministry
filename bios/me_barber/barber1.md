@@ -125,14 +125,24 @@ It was through M. E. Barber that he received the foundation of his spiritual lif
 Miss M. E. Barber once wrote a hymn that says:
 
 >    There is always something over,
+>    
 >    When we taste our gracious Lord;
+>    
 >    Every cup He fills o'erfloweth,
+>    
 >    Rich supply He doth afford.
+>    
 >    Nothing narrow, nothing stinted,
+>    
 >    Ever issued from His store;
+>    
 >    To His own He gives full measure,
+>    
 >    Running over, evermore,
+>    
 >    To His own He gives full measure,
+>    
 >    Running over, evermore.
+>    
 >
 >    (Hymns, #595, stanza one)
