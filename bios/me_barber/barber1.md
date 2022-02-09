@@ -188,3 +188,8 @@ Once I took over sixty co-workers to see Miss Barber. She said "If five or six f
 Miss Barber possessed this spiritual ability to discriminate between good and evil. The good and evil that I am speaking of here are different from the good and evil that ordinary men speak of. In many instances what is good and evil to man may be exactly the opposite in the eyes of God. Those who are good at criticizing others often have a wrong spirit. But those who have the knowledge of good and evil have the right eyes for things. Because their eyes have seen the light, their words are a kind of spiritual discernment rather than a kind of criticism.
 
 (Collected Works of Watchman Nee, The (Set 2) Vol. 45: Conferences, Messages, and Fellowship (5), Chapter 34, Section 2)
+
+#### 37
+In 1920 I spent a great deal of time studying the coming of Christ. I thought that I could have had a Ph.D. in this subject. A year later I met Sister M. E. Barber. One afternoon, we were on this important subject, and we spent quite a few hours talking about it. By the end we were still not through with it. She wanted me to stay behind to talk about it some more, but I did not accept the offer. Before I left she said, "You hide your disagreements in your heart and launder your politeness out in the front." I admitted that what I knew concerning the Lord's coming was merely outward knowledge. I studied and researched His coming, but Sister Barber was a person who waited for His coming. I was an earthen vessel, while she was a vessel of gold and silver. She was rich, and I was poor.
+
+(Collected Works of Watchman Nee, The (Set 2) Vol. 45: Conferences, Messages, and Fellowship (5), Chapter 24, Section 1)
