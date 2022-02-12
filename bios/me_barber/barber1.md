@@ -269,3 +269,40 @@ When I first read Sister Dora Yu's book, The Prayer Life, and saw two chapters o
 #### 53
 In 1922 Miss Barber explained the book, More Than Conquerors, by Jessie Penn-Lewis to me. She often said, "We need her to tell us about her experience of the cross." I was quite puzzled and could not understand what she was talking about. Later I gradually learned that a man does not need the doctrine of victory and of being more than conquerors, but the experience of the cross. A man will have the genuine experience of victory only after he has accepted the cross.
 (Collected Works of Watchman Nee, The (Set 2) Vol. 41: Conferences, Messages, and Fellowship (1), Chapter 9, Section 2)
+
+#### 54
+Ten years ago I was with Miss Barber on a hill in Pai-Ya-Tan. We spent three hours walking together. On our way back I asked, "Many people say that you like to hike. Is that true?" She asked, "What do they say?" I said, "They say that they see you hiking all the time." She said, "It is easy for me to stop hiking. I have been away from England for over ten years, and I do not intend to go back. I intend to die here. Every day I like to take a little walk. I prayed about it and became clear that this is what the Lord wants me to do. It would be easy for me to avoid this criticism of my hiking, but if this is what God wants me to do, it would be hard for man to stop me from doing it."
+
+I noticed that Miss Barber had better food than many unbelievers, and I mentioned this to her. She said, "My friend, it is not a question of eating well or not eating well. It is just as easy for me to eat well as to not eat well. But I pray over every dollar that I spend on my food every month. God takes responsibility for my food and for how good it is; I am not responsible for it." God's will is better than our sacrifice. We may think that sacrifice and sufferings are good. We may think that everything will be all right as long as we offer good things to God. But what does God say? Our mind does not need to worry about what to do for God. All we have to do is to obey His commandment.
+
+(Collected Works of Watchman Nee, The (Set 2) Vol. 42: Conferences, Messages, and Fellowship (2), Chapter 14, Section 4)
+
+
+#### 55
+Many who know Miss Barber can testify that she was very different from others. Whenever someone went to her and sat in front of her, spontaneously he would realize how much he was off. He would realize that he did not have what she had and would aspire for what she had. Fifteen years ago (1921) when I first became a Christian, I was very proud. I thought highly of myself because I was able to read one or two chapters of the Bible a day with some understanding. (Very few people are proud outwardly; most people are proud inwardly.) I went to her to tell her about this. After I prayed a few words with her, I saw my pride before she even opened her mouth to rebuke me. I knew that I did not have what she had. This is foot-washing. My feet were washed by her presence. I met God. Prior to that I was living outside of God, and I was old and dark. But once I came to her, I was refreshed and enlightened. I often felt that I was washed by her presence. We often have the same sensation—we feel that we are washed after talking to certain brothers. Our spiritual energy is revived; we can touch and feel God once more. This is foot-washing.
+
+(Collected Works of Watchman Nee, The (Set 2) Vol. 42: Conferences, Messages, and Fellowship (2), Chapter 2, Section 5)
+
+#### 56
+A few months before Miss Barber died, I went to see her and spoke with her for a long time. I wondered why this sister had such profound spiritual experiences. I wanted to know the reason for this. I asked her why the Lord had been so gracious to her. She answered, "I do not know. I only know that I have always been hungry and I have always been eating. Since I was nine, I have always been hungry; I have never been content before the Lord for these many years. I might have received grace and revelation yesterday, but today I say to God, `You have more, and I want more. I want more all the time.' I am forever hungry and yet at the same time forever satisfied." Her spiritual attainment was so deep that few have even scratched the surface of it.
+(Collected Works of Watchman Nee, The (Set 2) Vol. 42: Conferences, Messages, and Fellowship (2), Chapter 4, Section 2)
+
+#### 57
+Once I was taking a walk with Miss Barber in a garden. After some time the two of us became tired, and we sat down on some chairs under a tree. She said, "There is a bright star in the sky, but I cannot see it because a leaf has blocked the view. Brother Nee, if someone comes and tells me many ways to see the star, I still could not see it even though the ways he said were good. The reason is that my position is wrong; I am standing on the wrong ground." The words she said that night are still fresh in my mind today. She explained that a little leaf could block the light of a big star. Many times, God's will is frustrated by very small things. When you seek after God's will again and again and are still unclear, you should not change the method, but change the person. If you find that you cannot know God's will, it means that there is some blockage between you and God. It may be that God has spoken to you already, but that you are unwilling to obey Him. You have to remove these hindrances. After you have dealt with these problems thoroughly, you will know God's will. In knowing God's will, we have to pay attention to the person rather than the methods.
+
+(Collected Works of Watchman Nee, The (Set 2) Vol. 42: Conferences, Messages, and Fellowship (2), Chapter 5, Section 3)
+
+#### 58
+Miss Barber once wrote the following words in her Bible beside the passage in Matthew that says we should love the Lord our God with our whole heart, soul, and will: "Lord, I thank You for this commandment." She knew that the Lord was the One who could accomplish this. The commandments in the Bible can only be fulfilled by Christ. Thank and praise the Lord. Christ is our life, and He is our victory.
+
+(Collected Works of Watchman Nee, The (Set 2) Vol. 42: Conferences, Messages, and Fellowship (2), Chapter 27, Section 4)
+
+#### 59
+Miss Barber wrote in one of her hymns: "Let the spirit praise Thee,/Though the heart be riven" (Hymns, #377). This was spoken by one who truly knew God and who truly knew the cross.
+
+(Collected Works of Watchman Nee, The (Set 2) Vol. 42: Conferences, Messages, and Fellowship (2), Chapter 31, Section 3)
+
+#### 60
+When Brother Watchman Nee was a young man, M. E. Barber, an older sister in the Lord, helped him to the uttermost. Brother Nee went with Sister Barber a number of times to hear certain preachers and Bible teachers. After hearing a message that Brother Nee thought was wonderful, he asked Sister Barber what she thought. Sister Barber told him that the message was an empty shell full of eloquence without the content of life. In other words, within the person's eloquent speaking there was not the Lord's speaking. This happened quite often with Brother Nee and Sister Barber. One day they went to listen to an ineloquent speaker of whom Brother Nee had a very poor impression. After that speaker's message, Sister Barber told Brother Nee that this person had something of Christ and the cross. By this Brother Nee learned to take care of the treasure in a person's speaking. When we speak, we should look to the Lord that in our speaking He would speak.
+
+(Speaking Christ for the Building Up of the Body of Christ, Chapter 10, Section 2)
