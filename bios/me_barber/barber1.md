@@ -382,3 +382,52 @@ If we know life, we will be able to discern that some so-called holiness and pow
 Miss M. E. Barber was a sister from the West who served the Lord in China for many years. She was very spiritual and knew the Lord. For a period of time there was a group of young brothers and sisters who often went to her to be taught. Some of these young saints neglected being proper in their human living because they pursued being spiritual. Sometimes Miss Barber would call one of the sisters into her room, bring out a mirror, and ask, “Please look in the mirror, and see how you combed your hair. Have you combed your hair in the last three days?” Miss Barber would speak frankly, saying, “Sister, it is right that you are pursuing spirituality, but you are not a spirit or an angel. You are still a human being; hence, you need to learn how to be a proper human being. You should care for your appearance, just as you care for spiritual matters.” Miss Barber was right. The more a person grows in the Lord, the more human he will become; he will bear a strong aroma of a proper humanity.
 
 (Knowing and Experiencing God as Life, Chapter 4, Section 3)
+
+#### 77
+Since we know that the Lord's second coming is so precious, we should love the Lord's appearing (2 Tim. 4:8). The Bible concludes with “Come, Lord Jesus!” (Rev. 22:20). From the record in the New Testament, it is not difficult to discover that in their hearts the apostles firmly believed that the Lord would come quickly, and they also lived a life in preparation for the Lord's second coming. In the church's history, I know that Miss M. E. Barber was one who lived such a life. On the last day of 1925, Brother Nee went to pray with her, and she prayed, “Lord, do You really mean to say that You will let 1925 pass by, that You will wait until 1926 before You come back? However, on this last day I still pray that You will come back today!” Not long afterward, Brother Nee met her on the street, and again she said to him, “It is really strange that up to this day He has not yet come back.” Do not think that since we are clear concerning the signs of the Lord's coming, we can be slothful and can first love the world and then pursue the Lord when the last week comes. There is no such convenience. We should believe that the Lord is to be feared.
+
+(The Up-to-date Presentation of the God-ordained Way and the Signs Concerning the Coming of Christ, Chapter 7, Section 4)
+
+#### 78
+In my whole life I have never been impressed by another person like I was by Miss M. E. Barber. She was indeed a person who waited for the Lord's return. There are many famous men in Christianity who studied prophecy, such as D. M. Panton. They all knew about the Lord's return. But to my knowledge, only Miss Barber was a person who truly waited for His return. It was a big surprise to her that the Lord had not returned in her time. One year I spent the last day, New Year's eve, with her. She prayed, "Lord, if You want to come now, there is still time this year; You do not have to wait until next year." Her face was towards the Lord's coming. Christians do not wait for a time when we will serve the church; we wait for a time when the Lord will come again. If a believer is not careful, but substitutes other things for the Lord's return, he becomes fallen immediately. Once Miss Barber wrote a hymn concerning the Lord's coming. I did not understand one line she wrote in her hymn. She answered, "Come with me and I will show you." We went out and took a walk. When we were about to turn a corner, she said to me, "The Lord is coming; He is getting closer and closer. Perhaps we will see Him around the corner." In her I saw a person who was waiting for the Lord's return, and I realized what it means to wait for the Lord to return. Her whole life was a life of preparing for the Lord's return. Day by day, while she lived on the earth, she waited eagerly for the Lord to return.
+
+(Collected Works of Watchman Nee, The (Set 3) Vol. 60: Miscellaneous Records of the Kuling Training (2), Chapter 28, Section 1)
+
+#### 79
+When I was at White Teeth Lake, I once argued with Miss Barber. She said she wanted to gather a group of overcomers together. I said, "This is wrong. If you do, you are making yourself a sect." We believe in the truth concerning the overcomers, but we cannot choose a group of overcomers to form an overcomers' group. I knew about a certain situation concerning a brother. A few years later, others knew about it as well. When they found this out, they asked why I tolerated him for such a long time. I thought in my heart, "A sect can choose whom it likes, but we cannot exercise such a choice among God's children; we cannot choose whom we like in the church." Of course, when a man chooses to leave of his own accord, that is a different story.
+
+(Collected Works of Watchman Nee, The (Set 3) Vol. 60: Miscellaneous Records of the Kuling Training (2), Chapter 22, Section 1)
+
+#### 80
+I became a Christian at the end of 1919. At the beginning of 1920 I met a sister, Miss M. E. Barber, from whom I received much help. This help did not come merely from her words. Through meeting with her, staying or walking with her, my spirit was nourished. With some people one receives the supply only when they speak. With Miss Barber this was not the case. She only needed to sit in front of you, and you would receive nourishment and the anointing. This is the genuine spiritual supply. It is not a matter of doing something or saying something. Whoever learns more lessons has more spiritual deposit and can render more supply to others.
+(Collected Works of Watchman Nee, The (Set 3) Vol. 62: Matured Leadings in the Lord's Recovery (2), Chapter 21, Section 3)
+
+#### 81
+In my whole life I have only met two people who prayed with a strong and clean spirit—Brother Sparks and Miss Barber.
+(Collected Works of Watchman Nee, The (Set 3) Vol. 62: Matured Leadings in the Lord's Recovery (2), Chapter 14, Section 5)
+
+#### 82
+The second stanza of Hymns, #73 written by M. E. Barber says, “Just to breathe the Name of Jesus, / Is to drink of Life indeed.” To call on the name of the Lord Jesus is to drink of the Spirit.
+(Messages to the Trainees in Fall 1990, Chapter 4, Section 2)
+
+M. E. Barber said in a hymn that “to breathe the Name of Jesus is to drink of Life indeed” (Hymns, #73).
+(Messages to the Trainees in Fall 1990, Chapter 5, Section 4)
+
+#### 83
+Once I was talking to Sister M. E. Barber in the living room, and two sisters were praying in the back room. One of them was quite forceful. Miss Barber asked, "Should you pray like she does?" Before I could answer her, she said, "You should never pray like she does. You can never force God to answer your prayer."
+(Collected Works of Watchman Nee, The (Set 3) Vol. 58: Spiritual Judgment and Examples of Judgment, Chapter 47, Section 1)
+
+#### 84
+I had problem with my lungs, kidneys, and pancreas. Even now I have a problem with my heart. In 1923 I had peritonitis for the first time. I was in bed for over a month. When I breathed I felt pain. I had a high fever, and the pain was excruciating. At that time Brother Simon Meek gathered some brothers and sisters to pray for me. When he prayed, I did not feel anything. Another sister (M. E. Barber) prayed, "Lord, no one praises You in the grave; if our brother dies, You will not have his praise." As she prayed, something broke through in me, even though the fever was still present, and I was still in pain. The next day I rose up and went to Lo-hsing Pagoda to work on the first issue of The Christian. If we do not have God's word, we should take care of our body. If we have God's word, we should never look at the symptoms. We should consider the symptoms temptations and lies. They cannot remain; they have to go.
+
+(Collected Works of Watchman Nee, The (Set 3) Vol. 58: Spiritual Judgment and Examples of Judgment, Chapter 20, Section 2)
+
+#### 85
+Sister M. E. Barber once said that whoever places himself in the Lord's hand will be broken.
+(Collected Works of Watchman Nee, The (Set 3) Vol. 58: Spiritual Judgment and Examples of Judgment, Chapter 54, Section 1)
+
+#### 86
+What is needed for the building up of a local church is the ministry of life, not the gifts. In order to illustrate this point, I would like to tell a story about Brother Watchman Nee and an elder sister by the name of Miss Barber, who helped him very much. As a young man, Brother Nee always admired good speakers. When he and Miss Barber went to hear a few speakers, Brother Nee told her how wonderful they were. But Miss Barber would say, “That is just doctrine with human eloquence. There is no life there.” In other words, there was no ministry with these ones.
+
+(The Experience of Christ as Life for the Building Up of the Church, Chapter 15, Section 4)
+
