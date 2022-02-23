@@ -424,3 +424,65 @@ What is needed for the building up of a local church is the ministry of life, no
 
 (The Experience of Christ as Life for the Building Up of the Church, Chapter 15, Section 4)
 
+#### 87
+Although many good missionaries were sent to China by the leading missions, such as the one formed by Brother Hudson Taylor, history proves that there was not much result for the proper church life. Among the many missionaries who went to China was a sister named Margaret E. Barber who was sent there by a British mission. She was accused falsely, called back to England, and later vindicated by the Lord. Then the Lord burdened her to return to China. She was not sent by any mission but went there by faith, settling in a little town named Pagoda, very close to Brother Watchman Nee's hometown. She stayed there purposely, not visiting other places. In a sense, the Lord sowed her there as a grain of wheat. She remained there for years, dying there in 1929.
+
+Brother Nee told me personally the complete story regarding his contact with Sister Barber. Along with other young people, Brother Nee went to her to receive help. She was deep in the Lord and was very strict. She often rebuked the young ones. Brother Nee told me that most of them could not stand her rebukes. Eventually he was nearly the only one who kept going to her, presenting himself to her as an offering for her rebukes. He did this purposely. After a certain period of time had passed, he would feel the need for further rebuking and would go to her for another rebuke, and she did it. In 1929 she went to the Lord. She did not have much that anyone could inherit except a Bible containing many notes, which she willed to Brother Nee. Sister Barber was a seed that was sown, and Brother Nee was a grain that grew out of that seed. Brother Nee, as a seed that grew out of her, became a great vessel for the recovery of the proper church life. This is the way to produce and increase the church in life. It is absolutely not a matter of a golden opportunity.
+
+(Life-Study of John, Chapter 26, Section 1)
+
+#### 88
+Miss M. E. Barber deeply understood sin and God's holiness. Usually one only senses pride or jealousy but does not know what pride and jealousy are. But if you went to Miss Barber, you would have a feeling that you otherwise would not have had. She hated sin the most, and she dealt with sin the best. She dealt with herself very strictly. As a result, she was also extremely straightforward with others. The minute one came into her presence, he realized what pride and jealousy are. She truly knew God. This is why I say that many times we cannot learn truths from a man's preaching, but we can learn from the truth he practices.
+(The Renewing of the Mind, Chapter 1, Section 15)
+
+#### 89
+In a letter to Miss Dora Yu, Miss Barber once wrote these few words: "If Satan can take hold of our thought life, he has taken hold of all our life." This is a fact. Do not think these few words were loosely spoken. She had over fifty years of very deep experience with God before she spoke these words.
+(The Renewing of the Mind, Chapter 1, Section 7)
+
+#### 90
+I once asked Miss Barber concerning her experience in obeying the will of God. She said, "Every time that God delays telling me His will, then I reckon that within me there is still a heart unwilling to obey the will of God. Within me there must still be an improper aim. I realized this from many experiences." 
+(Collected Works of Watchman Nee, The (Set 1) Vol. 09: The Present Testimony (2), Chapter 2, Section 4)
+
+#### 91
+When Miss Barber died, she left a Bible to me. Written in it were the words, "O God, grant me a thorough and unlimited revelation of myself." How deep is this! We often think that as long as we do not see anything wrong that this is good enough. Little do we realize that God has another kind of view regarding us. We will just be fooling ourselves if we do not receive the sight of God. We must have the boldness to be shined upon by God with His light so that He can reveal to us the real picture of ourselves. We have no way to know our own selves unless there is the shining of God. Our own evaluation of ourselves is not trustworthy.
+
+(Collected Works of Watchman Nee, The (Set 1) Vol. 09: The Present Testimony (2), Chapter 2, Section 4)
+
+#### 92
+When I began to work, I decided, at whatever cost, to obey the will of God. I thought I was obeying the will of God. However, whenever I went to see Miss Barber, after talking and reading a few verses from the Bible with her, I was aware that I was still lacking. Every time I saw her, I always felt something special—God was there. When you came close to her, you felt God. She had light. She was controlled by the light of God; therefore, when you came close to her, her light condemned your sin.
+(Collected Works of Watchman Nee, The (Set 1) Vol. 09: The Present Testimony (2), Chapter 2, Section 5)
+
+#### 93
+Once when I was talking to Miss M. E. Barber, she related an interesting story to me. A brother had done something terrible. Later, he repented and came to Miss Barber. She said to the man, "You have repented and have turned back, have you not? Now you must go to the Lord and tell Him, `I was once a vessel in the hand of the potter. Now the vessel is broken.' Do not force the Lord to do anything by saying, `Lord, You must make me another kind of vessel.' You must humble yourself and pray, `Lord, be merciful to me. Let me be a vessel again! I can no longer insist on being a vessel by myself.' The Lord can make you a vessel unto honor, or He can make you a vessel unto dishonor."
+(Collected Works of Watchman Nee, The (Set 3) Vol. 50: Messages for Building Up New Believers (3), Chapter 6, Section 6)
+
+#### 94
+Miss M. E. Barber was a person in whom I found no trace of thought of remaining on earth for a long time. She was genuinely waiting for the Lord's return. Once I was walking with her on a street, and she said, "Perhaps, I will meet the Lord when we turn this corner." She asked me to walk at a distance from her on the other side of the sidewalk, and repeated, "I do not know whether this will be the corner for me."
+(Collected Works of Watchman Nee, The (Set 3) Vol. 50: Messages for Building Up New Believers (3), Chapter 18, Section 1)
+
+#### 95
+Miss Barber once said that a leaf can hide a star (cf. Matt. 6:22-23).
+
+(Collected Works of Watchman Nee, The (Set 2) Vol. 46: Conferences, Messages, and Fellowship (6), Chapter 6, Section 1)
+
+#### 96
+Miss Barber once said, "Lord, I die because I want to leave the field for others to die. Let me stand in the place of death that others may pass into life."
+
+(Collected Works of Watchman Nee, The (Set 2) Vol. 46: Conferences, Messages, and Fellowship (6), Chapter 33, Section 1)
+
+#### 97
+Miss Barber once said, "Lord, I am willing to break my heart so that I can have Your heart."
+(Collected Works of Watchman Nee, The (Set 2) Vol. 46: Conferences, Messages, and Fellowship (6), Chapter 34, Section 4)
+
+
+#### 98
+Miss Barber once said, "All the bread that is in the Lord's hand, He will surely break." Many times we put ourselves in the Lord's hand, while at the same time we pray privately, "Please do not break me!"
+(Collected Works of Watchman Nee, The (Set 1) Vol. 11: The Present Testimony (4), Chapter 9, Section 2)
+
+#### 99
+Friends, when I first began to work for the Lord, I went one day to visit an elderly sister, Miss Barber. We sat in the living room together. She began to ask me, "Is your intention in giving yourself to serve God something that God wants? What does the Lord want you to do?" I answered, "He wants me to serve Him." She then asked, "What if the Lord does not want you to work for Him?" I answered, "He surely wants me to work for Him. I know that." She then began to read with me the passage in Matthew 15 concerning the Lord feeding the four thousand with the seven loaves and the fish. She asked me what this passage meant. I answered that the disciples put the loaves and the fish in the Lord's hand, and when the Lord had blessed them, they became manifold and the four thousand were fed. She then added one word, which I can never forget to this day. Of course, at that time I was quite bewildered. She said that all the loaves in the Lord's hand were first broken before they were distributed. Any loaf that was not broken could not be changed and could not sustain another's life. She also said, "Brother (actually she was older than my parents), please remember that many times we are like the loaves, who would say: `Lord, I will consecrate myself to you.' But even though we have consecrated ourselves, we secretly hope in our heart that the Lord will not break us. We hope that the loaf can always be whole, beautiful, and always remain unchanged. But no loaf that is in His hand is ever unbroken. If you do not want to be broken, it is better that you do not put yourself in His hand."
+(Collected Works of Watchman Nee, The (Set 1) Vol. 11: The Present Testimony (4), Chapter 14, Section 3)
+
+#### 100
+Once I asked Miss Barber how one can produce the sense of the need of life within others and generate a hunger within them. She replied, "On the one hand, this matter depends on God. But on the other hand, there are things that the workers themselves have to be responsible for. Let us not consider God's side for now. On the worker's side, whether or not he can create in others a spiritual hunger does not depend on what he says but on what he is. When an advanced one is put together with one who has not made much progress, that one will spontaneously realize his backwardness. When an obedient one is put together with a disobedient one, the disobedient one will spontaneously recognize his own disobedience. In the same way, when a holy one is put side by side with an unholy one, the unholy one will spontaneously realize his own unholiness. If you are not that type of person, you will not be able to produce that type of hunger in others."
+(Collected Works of Watchman Nee, The (Set 1) Vol. 11: The Present Testimony (4), Chapter 11, Section 5)
