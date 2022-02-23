@@ -549,3 +549,6 @@ And His Name for ever bless.
 When Miss M. E. Barber thought of coming to China to serve the Lord, she foresaw the difficulties of a woman setting out on her own for a foreign country, so she asked advice of Mr. Wilkinson of the Mildmay Mission to the Jews, who said, “A foreign country, no promise of support, no backing of any society—all these present no problem. The question is here: Are you going on your own initiative, or are you being sent by God?” “God is sending me,” she replied. “Then no more questions are necessary,” he said, “for if God sends you, He must be responsible.” Yes, if we go on our own initiative, then distress and shame await us, but if we go as sent ones of God, all responsibility will be His, and we need never inquire how He is going to discharge it.
 (The Normal Christian Church Life, Chapter 8, Section 3)
 
+#### 109
+Sister M. E. Barber in one of her hymns also said, “Just to breathe the Name of Jesus, / Is to drink of Life indeed” (stanza 2 of Hymns, #73). Her experience also confirms that to breathe is to drink.
+(The Living Needed for Building Up the Small Group Meetings, Chapter 7, Section 1)
