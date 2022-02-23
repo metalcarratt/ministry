@@ -486,3 +486,66 @@ Friends, when I first began to work for the Lord, I went one day to visit an eld
 #### 100
 Once I asked Miss Barber how one can produce the sense of the need of life within others and generate a hunger within them. She replied, "On the one hand, this matter depends on God. But on the other hand, there are things that the workers themselves have to be responsible for. Let us not consider God's side for now. On the worker's side, whether or not he can create in others a spiritual hunger does not depend on what he says but on what he is. When an advanced one is put together with one who has not made much progress, that one will spontaneously realize his backwardness. When an obedient one is put together with a disobedient one, the disobedient one will spontaneously recognize his own disobedience. In the same way, when a holy one is put side by side with an unholy one, the unholy one will spontaneously realize his own unholiness. If you are not that type of person, you will not be able to produce that type of hunger in others."
 (Collected Works of Watchman Nee, The (Set 1) Vol. 11: The Present Testimony (4), Chapter 11, Section 5)
+
+#### 101
+I believe that many of you know of Brother Watchman Nee. When he was young, he received the greatest help from a sister by the name of Miss M. E. Barber. She was very much devoted to the Lord. Brother Nee told me several times, “When I went to see Miss Barber, many times while I was waiting in her living room, I had the sense that I was in the presence of the Lord.” What is this? This is the star of the church. Perhaps when you come to such a person, he could not say much, and he could not answer your question. He may say, “I am not clear.” However, though he says he is not clear, you have the sense that you are under the shining. It is not a matter of teaching or instruction. His word may not be clear, but he himself is transparent, and when you are in his presence, you have the sense not only that he is transparent, but that you are made clear.
+(Finding Christ by the Living Star, Chapter 1, Section 10)
+
+#### 102
+When Brother Watchman Nee was young, Sister M. E. Barber was the person who gave him the most help. She never went to see a doctor or took medicine in her whole life, so she lived to only around sixty years of age. Even Paul told Timothy, “No longer drink water only, but use a little wine for the sake of your stomach and your frequent illnesses” (1 Tim. 5:23). We cannot say that Paul had little faith. I feel that M. E. Barber was a little bit too much. Otherwise, she could have lived longer and could have been more useful in the Lord's hand. Therefore, for our benefit and the Lord's, we must learn this matter of exercising faith.
+
+(The Economy of God and the Mystery of the Transmission of the Divine Trinity, Chapter 9, Section 4)
+
+#### 103
+As we have seen already from Lamentations, our calling “O Lord Jesus” is our breathing. Hymns, #73 was written by Miss M. E. Barber, an older sister who helped Brother Watchman Nee very much. Stanza 2 says, “Blessed Jesus! Mighty Savior! / In Thy Name is all I need; / Just to breathe the Name of Jesus, / Is to drink of Life indeed.” Three or four years ago, when I told the Lord's people that to breathe is to drink, I was a little doubtful. I had never heard anyone say this, and I thought that I might be too much. However, one night in Los Angeles this hymn was called. While we were singing, I was surprised at the lines that say, “Just to breathe the Name of Jesus, / Is to drink of Life indeed.” At least one other person, Miss Barber, a sister who was deep in the Lord, experienced the same thing.
+(Enjoying the Riches of Christ for the Building Up of the Church as the Body of Christ, Chapter 12, Section 3)
+
+#### 104
+I have mentioned Miss M. E. Barber many times. To me, no one living on earth today is as much like Mary as she was. She indeed wasted herself. When she was carried to the grave at her burial, one brother spoke on the story of Mary and said that Miss Barber, like Mary, had done all that she could. I agree with that brother. She was indeed a Mary. I know of very few people in this world like her. While she was still alive, I asked her once, "What is the qualification to work?" She answered, "The qualification to work is to be willing to not work for the Lord." When a man is willing to be "shut behind doors," to be insignificant for the Lord's sake, he is worthy to work for the Lord.
+(Collected Works of Watchman Nee, The (Set 2) Vol. 21: The Christian (1934-1940), Chapter 2, Section 3)
+
+#### 105
+Hymns, #73 speaks of breathing the name of Jesus and of drinking of life. Watchman Nee received great help from the author of this hymn, Miss M. E. Barber. The second stanza of the hymn says, “Blessed Jesus! Mighty Savior! / In Thy Name is all I need; / Just to breathe the Name of Jesus, / Is to drink of Life indeed.” Miss Barber was quite experienced in the Lord, and she discovered that to breathe the name of the Lord is to drink of the Lord's life. Just to breathe the name of Jesus is to drink of life indeed. When we call, “O Lord Jesus! O Lord Jesus!” we are breathing, and our breathing is our drinking. Hence, we can drink the Lord by calling on His name.
+(The Four Men in the Bible, Chapter 7, Section 1)
+
+#### 106
+During the years I was with Brother Nee in China, I saw that he was not working; he was sowing Christ as a seed. He told me that Miss M. E. Barber did not come to China to work. She was in China sowing Christ, even sowing herself in Christ. She was a seed sown into that district in China. Eventually, something grew out of that seed. The Lord’s recovery today is the produce of the seed sown by Sister Barber and Brother Nee. Do not think that our working means very much. No, our working does not mean anything. If you study the Gospels again, you will see that the first Christian worker was Christ Himself. However, He did not work very much. Instead, He was sowing.
+
+(Life-Study of Matthew, Chapter 36, Section 1)
+
+#### 107
+The following lines were penned by Miss M. E. Barber on Psalm 23:5 when she had used her last dollar:
+
+There is always something over,
+When we trust our gracious Lord;
+Every cup He fills o’erfloweth,
+His great rivers all are broad.
+Nothing narrow, nothing stinted,
+Ever issued from His store;
+To His own He gives full measure,
+Running over, evermore.
+
+There is always something over,
+When we, from the Father’s Hand,
+Take our portion with thanksgiving,
+Praising for the path He planned.
+Satisfaction, full and deepening,
+Fills the soul, and lights the eye,
+When the heart has trusted Jesus
+All its need to satisfy.
+
+There is always something over,
+When we tell of all His love;
+Unplumbed depths still lie beneath us,
+Unscaled heights rise far above.
+Human lips can never utter
+All His wondrous tenderness.
+We can only praise and wonder
+And His Name for ever bless.
+
+(The Normal Christian Church Life, Chapter 8, Section 6)
+
+#### 108
+When Miss M. E. Barber thought of coming to China to serve the Lord, she foresaw the difficulties of a woman setting out on her own for a foreign country, so she asked advice of Mr. Wilkinson of the Mildmay Mission to the Jews, who said, “A foreign country, no promise of support, no backing of any society—all these present no problem. The question is here: Are you going on your own initiative, or are you being sent by God?” “God is sending me,” she replied. “Then no more questions are necessary,” he said, “for if God sends you, He must be responsible.” Yes, if we go on our own initiative, then distress and shame await us, but if we go as sent ones of God, all responsibility will be His, and we need never inquire how He is going to discharge it.
+(The Normal Christian Church Life, Chapter 8, Section 3)
+
