@@ -615,3 +615,47 @@ Then the Lord brought a sister by the name of M. E. Barber to China. I do not be
 #### 121
 Then there was also Miss M. E. Barber, who helped Brother Watchman Nee. Through her we became acquainted with the spiritual writings from the West. How could we have been in a faraway, backward country and still have gotten to know spiritual books that even some of you are not familiar with? It was through these top spiritual persons.
 (The World Situation and God's Move, Chapter 5, Section 4)
+
+#### 122
+M. E. Barber once said something to this effect: "If the Lord desires to imprison me for twenty years, I am willing, though I came to China to save people."
+(Collected Works of Watchman Nee, The (Set 1) Vol. 15: Study on Matthew, Chapter 12, Section 3)
+
+#### 123
+Miss M.E. Barber said, "If Satan can control your thought life, he controls the major part of your life." If we are not delivered in our thoughts, we are not delivered from the flesh.
+(Collected Works of Watchman Nee, The (Set 2) Vol. 38: General Messages (2), Chapter 32, Section 3)
+
+#### 124
+If we have truly seen the great light of the cross, the cross will not merely be a suffering to us, even though from the human perspective, it is still a suffering. Sister M.E. Barber wrote a hymn that says, “Let the spirit praise Thee, / Though the heart be riven” (Hymns, #377). We often reverse the emphasis and say, “The heart is riven, though the spirit praises Thee.” We should realize that the purpose of the experience of the cross is death and termination, not suffering, even though some suffering is involved in the process. Our experience confirms this.
+(Guidelines for the Lord's Table Meeting and the Pursuit in Life, Chapter 12, Section 5)
+
+#### 125
+According to my observation, those who are genuinely spiritual tend to have quick dispositions. It is difficult for a slow person to become spiritual. Brother Watchman Nee was greatly helped by Miss M. E. Barber, who was much older than he. I never met her, but many who had met her told me that she was a very quick person. Of course, a person who has a quick disposition and does things in a rush also tends to make many mistakes. A wooden chair or a statue of Mary will never make any mistakes because it never moves. Therefore, it is also worthless to be slow. It is difficult for the Holy Spirit to touch a slow person because such a person is indifferent. Everything you say is about the same to him, making it difficult to touch him.
+
+(Vessels Useful to the Lord, Chapter 9, Section 1)
+
+#### 126
+The full-time serving brothers do not earn their livelihood by preaching; rather, they are those who have sacrificed their future to serve the Lord. May we be those who are in the Lord's heart and learn to receive His breaking. May we say as Sister M. E. Barber said, “Lord, I have no other desire than You.”
+(The Administration of the Church and the Ministry of the Word, Chapter 5, Section 5)
+
+#### 127
+M. E. Barber, who lived in China at the time of Brother Nee and rendered him much help, paid much attention to the Lord's second coming and the rapture. But she paid more attention to life than others. She was waiting for the Lord's coming. Brother Nee told us that she and he went for a walk one time, and as they rounded the corner of a building, she said to him, “Maybe as we turn the corner, He will be there, and we will meet Him.” She was waiting for the Lord's coming and expecting her rapture to such an extent.
+(The Apostles' Teaching, Chapter 8, Section 1)
+
+#### 128
+We feel most sorrowful concerning the news of the passing away of Miss Barber in Lo-hsing Pagoda, Fukien. She was one who was very deep in the Lord, and in my opinion, the kind of fellowship she had with the Lord and the faithfulness she expressed to the Lord are rarely found on this earth. In reading the hymn published on the cover of this issue of the magazine, one can imagine the kind of person she was.
+(1930)
+
+(Collected Works of Watchman Nee, The (Set 1) Vol. 08: The Present Testimony (1), Chapter 22, Section 1)
+
+#### 129
+Sister M. E. Barber said, “Whoever cannot stop working for the sake of God cannot work for the sake of God.” This is a good word of experience. David knew that God needed a temple, but when God's word came to him, he immediately stopped his work.
+(Knowing Life and the Church, Chapter 16, Section 2)
+
+#### 130
+Sometimes the Lord wants us to understand His will, but we are distracted by the mixture within us. Miss M. E. Barber knew the Lord. She said, “If you have not forsaken yourself completely, you are only ten percent into your hundred-mile journey of pursuing to know the Lord, but if you have forsaken yourself, you have already finished ninety-nine miles.” This means that the greatest problem in knowing the Lord's will is the self.
+(The Purpose of God's Salvation, Chapter 6, Section 2)
+
+#### 131
+Miss M. E. Barber also lived with such a love for the Lord's appearing. Their hearts were not tied to any person, matter, or thing on this earth. Those who wait for the Lord's coming and love the Lord's appearing will overcome.
+(Crucial Truths in the Holy Scriptures, vol. 6, Chapter 10, Section 5)
+
