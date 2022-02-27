@@ -197,7 +197,7 @@ Once Miss Barber would not accept two hundred dollars from a professor (who appe
 I once asked Miss M. E. Barber if there were any books on the cross that I could read. She answered, "Yes. But at your present stage, you cannot read them, and it would be unprofitable for you to read them." I could not hold back my curiosity, and a few days later I learned the names of the books in the course of our conversation. Later, someone gave me copies of those books, and I read right through them. On the one hand, I got some help, but on the other hand, I was greatly disappointed because the books did not answer my questions concerning the cross. I wished that the books had been written in a systematic way, but they were not written this way. My mind tried to sort out the theology and the doctrines, but God was trying to give me life. The books by Madam Guyon, which Brother Yu translated, do not contain much Bible exposition. But after one reads them, he receives the help. When one reads these books, he gets nourishment in life. But when he reads books on knowledge, he receives no nourishment in life. As servants of the Lord we should supply others with life and should not merely teach others doctrines.
 (Collected Works of Watchman Nee, The (Set 2) Vol. 45: Conferences, Messages, and Fellowship (5), Chapter 19, Section 2)
 
-#### 40
+#### 40 - ?
 In 1926 I intended to work in a certain place. I felt that I should not go, but I went anyway. I could not say that I was rebelling against the Lord, but neither could I say that I was obeying Him. I did not find peace and could not pray. I could only utter some formal prayers and read the Word in a ritualistic way. The result of the work was good and many people were saved, but I was grieving. It was Sister Barber's wish that I not leave Foochow, but when someone wrote to her and told her of the result of the work, she commended me for the first time. However, I still did not feel at ease. I was working by the gifts that God had given me; I considered these gifts as things. They were merely things and not Christ. Today I can say that my gift is just Christ. This gift is a person. If I am related to the gifts without being related to Christ, the gifts will only be things. Although the Corinthian believers had gifts, their gifts were dead because Christ was not there.
 (Collected Works of Watchman Nee, The (Set 2) Vol. 45: Conferences, Messages, and Fellowship (5), Chapter 25, Section 2)
 
@@ -250,20 +250,20 @@ A brother in Shanghai had a fierce look when he first came to Shanghai. I tried 
 
 (Collected Works of Watchman Nee, The (Set 2) Vol. 41: Conferences, Messages, and Fellowship (1), Chapter 32, Section 1)
 
-#### 51
+#### 51 - hungry for God
 Miss Barber used to tell others that from her youth through her old age she had an eternal hunger for God. She told others that whenever her eyes were not set on the Lord, she would not feel hungry. But whenever her eyes were set on the Lord, she would be continually hungry before the Lord. She was hungry continually, and the Lord filled her continually. 
 (Collected Works of Watchman Nee, The (Set 2) Vol. 41: Conferences, Messages, and Fellowship (1), Chapter 12, Section 1)
 
-#### 52
+#### 52 - awaiting the Lord's coming
 When I first read Sister Dora Yu's book, The Prayer Life, and saw two chapters on the Lord's coming, I was stirred up to study the prophecies in Daniel and Revelation very much. Later I met Miss M.E. Barber, who did not talk about the prophecies of the Lord's coming at all. I was very proud and thought that I understood much about prophecy. Yet in the course of our conversation, I found that she was the one who was truly waiting for the Lord's coming. My studying was genuine, but my waiting was not. I studied about the Lord's coming, but I was not waiting for it. However, she not only studied the prophecies of the Lord's coming, but she was genuinely waiting for it. Her studying and her waiting were both genuine.
 (Collected Works of Watchman Nee, The (Set 2) Vol. 41: Conferences, Messages, and Fellowship (1), Chapter 9, Section 2)
 
 
-#### 53
+#### 53 - experience vs doctrine
 In 1922 Miss Barber explained the book, More Than Conquerors, by Jessie Penn-Lewis to me. She often said, "We need her to tell us about her experience of the cross." I was quite puzzled and could not understand what she was talking about. Later I gradually learned that a man does not need the doctrine of victory and of being more than conquerors, but the experience of the cross. A man will have the genuine experience of victory only after he has accepted the cross.
 (Collected Works of Watchman Nee, The (Set 2) Vol. 41: Conferences, Messages, and Fellowship (1), Chapter 9, Section 2)
 
-#### 54
+#### 54 - following the Lord vs man's opinion
 Ten years ago I was with Miss Barber on a hill in Pai-Ya-Tan. We spent three hours walking together. On our way back I asked, "Many people say that you like to hike. Is that true?" She asked, "What do they say?" I said, "They say that they see you hiking all the time." She said, "It is easy for me to stop hiking. I have been away from England for over ten years, and I do not intend to go back. I intend to die here. Every day I like to take a little walk. I prayed about it and became clear that this is what the Lord wants me to do. It would be easy for me to avoid this criticism of my hiking, but if this is what God wants me to do, it would be hard for man to stop me from doing it."
 
 I noticed that Miss Barber had better food than many unbelievers, and I mentioned this to her. She said, "My friend, it is not a question of eating well or not eating well. It is just as easy for me to eat well as to not eat well. But I pray over every dollar that I spend on my food every month. God takes responsibility for my food and for how good it is; I am not responsible for it." God's will is better than our sacrifice. We may think that sacrifice and sufferings are good. We may think that everything will be all right as long as we offer good things to God. But what does God say? Our mind does not need to worry about what to do for God. All we have to do is to obey His commandment.
@@ -271,107 +271,107 @@ I noticed that Miss Barber had better food than many unbelievers, and I mentione
 (Collected Works of Watchman Nee, The (Set 2) Vol. 42: Conferences, Messages, and Fellowship (2), Chapter 14, Section 4)
 
 
-#### 55
+#### 55 - having the presence of God
 Many who know Miss Barber can testify that she was very different from others. Whenever someone went to her and sat in front of her, spontaneously he would realize how much he was off. He would realize that he did not have what she had and would aspire for what she had. Fifteen years ago (1921) when I first became a Christian, I was very proud. I thought highly of myself because I was able to read one or two chapters of the Bible a day with some understanding. (Very few people are proud outwardly; most people are proud inwardly.) I went to her to tell her about this. After I prayed a few words with her, I saw my pride before she even opened her mouth to rebuke me. I knew that I did not have what she had. This is foot-washing. My feet were washed by her presence. I met God. Prior to that I was living outside of God, and I was old and dark. But once I came to her, I was refreshed and enlightened. I often felt that I was washed by her presence. We often have the same sensation—we feel that we are washed after talking to certain brothers. Our spiritual energy is revived; we can touch and feel God once more. This is foot-washing.
 
 (Collected Works of Watchman Nee, The (Set 2) Vol. 42: Conferences, Messages, and Fellowship (2), Chapter 2, Section 5)
 
-#### 56
+#### 56 - hungry for God (near he end of her life)
 A few months before Miss Barber died, I went to see her and spoke with her for a long time. I wondered why this sister had such profound spiritual experiences. I wanted to know the reason for this. I asked her why the Lord had been so gracious to her. She answered, "I do not know. I only know that I have always been hungry and I have always been eating. Since I was nine, I have always been hungry; I have never been content before the Lord for these many years. I might have received grace and revelation yesterday, but today I say to God, `You have more, and I want more. I want more all the time.' I am forever hungry and yet at the same time forever satisfied." Her spiritual attainment was so deep that few have even scratched the surface of it.
 (Collected Works of Watchman Nee, The (Set 2) Vol. 42: Conferences, Messages, and Fellowship (2), Chapter 4, Section 2)
 
-#### 57
+#### 57 - can't see because of wrong position
 Once I was taking a walk with Miss Barber in a garden. After some time the two of us became tired, and we sat down on some chairs under a tree. She said, "There is a bright star in the sky, but I cannot see it because a leaf has blocked the view. Brother Nee, if someone comes and tells me many ways to see the star, I still could not see it even though the ways he said were good. The reason is that my position is wrong; I am standing on the wrong ground." The words she said that night are still fresh in my mind today. She explained that a little leaf could block the light of a big star. Many times, God's will is frustrated by very small things. When you seek after God's will again and again and are still unclear, you should not change the method, but change the person. If you find that you cannot know God's will, it means that there is some blockage between you and God. It may be that God has spoken to you already, but that you are unwilling to obey Him. You have to remove these hindrances. After you have dealt with these problems thoroughly, you will know God's will. In knowing God's will, we have to pay attention to the person rather than the methods.
 
 (Collected Works of Watchman Nee, The (Set 2) Vol. 42: Conferences, Messages, and Fellowship (2), Chapter 5, Section 3)
 
-#### 58
+#### 58 - trusting God to fulfill the commandments
 Miss Barber once wrote the following words in her Bible beside the passage in Matthew that says we should love the Lord our God with our whole heart, soul, and will: "Lord, I thank You for this commandment." She knew that the Lord was the One who could accomplish this. The commandments in the Bible can only be fulfilled by Christ. Thank and praise the Lord. Christ is our life, and He is our victory.
 
 (Collected Works of Watchman Nee, The (Set 2) Vol. 42: Conferences, Messages, and Fellowship (2), Chapter 27, Section 4)
 
-#### 59
+#### 59 - knowing the cross
 Miss Barber wrote in one of her hymns: "Let the spirit praise Thee,/Though the heart be riven" (Hymns, #377). This was spoken by one who truly knew God and who truly knew the cross.
 
 (Collected Works of Watchman Nee, The (Set 2) Vol. 42: Conferences, Messages, and Fellowship (2), Chapter 31, Section 3)
 
-#### 60
+#### 60 - life vs eloquence
 When Brother Watchman Nee was a young man, M. E. Barber, an older sister in the Lord, helped him to the uttermost. Brother Nee went with Sister Barber a number of times to hear certain preachers and Bible teachers. After hearing a message that Brother Nee thought was wonderful, he asked Sister Barber what she thought. Sister Barber told him that the message was an empty shell full of eloquence without the content of life. In other words, within the person's eloquent speaking there was not the Lord's speaking. This happened quite often with Brother Nee and Sister Barber. One day they went to listen to an ineloquent speaker of whom Brother Nee had a very poor impression. After that speaker's message, Sister Barber told Brother Nee that this person had something of Christ and the cross. By this Brother Nee learned to take care of the treasure in a person's speaking. When we speak, we should look to the Lord that in our speaking He would speak.
 
 (Speaking Christ for the Building Up of the Body of Christ, Chapter 10, Section 2)
 
-#### 61
+#### 61 - life vs eloquence
 Concerning this matter, I can never forget the help that I received from Brother Watchman Nee about thirty years ago. One day he spoke with me, saying, “Brother Lee, when I was very young, a little more than twenty years of age, I was under the help of an elderly sister, Miss M. E. Barber. Many times when famous preachers with prominent titles came to our town, Miss Barber would bring me with her, and at other times I would ask her to go with me to listen to these world-famous preachers. The first time we went, in my heart I truly appreciated the preacher. I felt that he was very eloquent, smart, and knowledgeable, and I truly admired him. Then the next day when I sat with Miss Barber in her living room, she asked me what I thought about the preacher the previous night. I said, ‘He is wonderful!' She went on to ask, ‘Wonderful in what?' I said, ‘He is surely wonderful in knowledge, in ability, in eloquence, and so forth.' Then she asked, ‘What is that? Is that something that is Christ Himself? Is that something that comes out of the inner fellowship? Can you realize whether the speaker is really one who is in fellowship with Christ?'” Brother Nee told me that after being asked in that way, he simply had nothing to say except one word: no. Was that something that is Christ Himself? No. Was that something from the inner fellowship? No. Was that speaker in fellowship with Christ? No.
 
 After a certain time another speaker came. This one was more famous than all the ones who had come before. Brother Nee went to Miss Barber and asked her to go with him to listen to that big speaker. While they were listening, Brother Nee was really happy and said within himself, “Miss Barber, this time you have to be convinced. Here is something really bigger and better.” After they came back, Brother Nee had no patience to wait until the next day. He right away asked her, “What about this one?” Miss Barber calmly asked him, “Is this one in the fellowship of the Lord?” Brother Nee told me that her question simply made him clear, and he had to answer, “No.” Since that time I have been greatly helped. I may speak very well and I may preach richly, yet there is the possibility that I am not in the fellowship of the Lord. That kind of preaching is a preaching of gift, not a preaching of Christ Himself. Anything that is of Christ, even as Christ Himself, must be in the fellowship of Christ. You must be in the fellowship of Christ. You must have a living contact with Christ.
 
 (The Central Thought of God, Chapter 8, Section 1)
 
-#### 62
+#### 62 - baptising brother Nee
 On the morning of March 28, 1921, my mother asked, "If I were to be baptized by immersion, how would you feel?" I replied, "That is just what I have been waiting for." She asked, "Where can we go to be baptized by immersion?" I answered, "I inquired about it quite some time ago. We can go to Mawei (which is two hours away from Foochow by small steamer) and find out from Miss Barber. When Dora Yu came to Fukien, she was baptized by immersion at Miss Barber's place." We felt that rather than choose a date, it was better to do it that same day. So my mother and I decided to depart that very same day. Upon arriving at Miss Barber's, we told her of our intention and she fully agreed. Thus, on the same day we went hurriedly to the countryside of Yangchi and were immersed there.
 (Collected Works of Watchman Nee, The (Set 1) Vol. 18: Notes on Scriptural Messages (2), Chapter 8, Section 2)
 
-#### 63
+#### 63 - leaving denominations
 One day I went by boat to Mawei to see Margaret Barber. I asked how she felt about my name being in the Methodist Church's book of life (what they called the church register). She replied, "I am afraid that among the names in that book of life many are dead and not a few are perishing." I said, "Should I have my name in a book of life on earth?" She replied, "If your name is recorded in the book of life in heaven, what good will an earthly book of life do you? And if your name is not recorded in the heavenly book of life, what will this earthly book of life profit you?"
 (Collected Works of Watchman Nee, The (Set 1) Vol. 18: Notes on Scriptural Messages (2), Chapter 8, Section 4)
 
-#### 64
+#### 64 - passing on money
 Every Saturday I went to Ma-kiang, Fukien, to listen to Miss Margaret Barber's preaching. This time when I saw her, she said, "Here is twenty-seven dollars, which a friend asked me to give you for your work." This sum was exactly sufficient for three months' rent at nine dollars per month—not too much and not too little. On my return, without hesitation, I paid the three months' rent in advance. Later, we prayed again, and the Lord provided again. This was the beginning of the work in Foochow.
 (Collected Works of Watchman Nee, The (Set 1) Vol. 18: Notes on Scriptural Messages (2), Chapter 8, Section 6)
 
-#### 65
+#### 65 - not coming to a meeting (?)
 Originally, we considered doing some work at the beginning of the Chinese New Year. But Miss Lee had some other engagements in Nanking and had to leave Foochow. We could only send her away. We also considered asking Miss M.E. Barber from Ma-kiang to come and help us. But she declined on the ground that she did not know what kind of meeting we had. I discussed with Brother Wang about whether or not to continue with our meeting. At that time, Brother Wang had a cold, and I had already sent letters to Brothers Faithful Luke and Simon Meek, who had gone home for vacation, to come back right away. We had no other way but to continue with the meetings.
 (Collected Works of Watchman Nee, The (Set 1) Vol. 18: Notes on Scriptural Messages (2), Chapter 8, Section 5)
 
-#### 66
+#### 66 - teaching obedience
 In 1923 seven of us worked together as co-workers. Two of us took the lead, a co-worker who was five years my senior and myself. We had a co-workers' meeting every Friday in which the other five were often forced to listen to the arguing between the leading two. We were all young then, and each had his own way of thinking. I often charged the elder co-worker with being wrong, and vice versa. Since my temperament had not been dealt with, I frequently lost my temper. Today in 1936 I do sometimes laugh, but I seldom laughed at that time. In our controversies I admit that many times I was wrong, but he was also at times in the wrong. It was easy for me to forgive my own faults, but not easy to forgive others. After having a dispute on Friday, I would go to Sister Barber on Saturday and accuse the other co-worker. I would say, "I told that co-worker that he should act in a certain way, but he would not listen. You should speak to him." Sister Barber replied, "He is five years older than you; you should listen to him and obey him." I answered, "Am I to listen to him whether he is reasonable or not?" She said, "Yes! The Scriptures say that the younger should obey the elder." I replied, "I cannot possibly do this. A Christian should act according to reason." She answered, "Whether there is reason or not, you need not care. The Scriptures say that the younger should obey the elder." I was angry at heart that the Bible would say such a thing. I wanted to give vent to my indignation, but I could not.
 
 Each time following the controversy on Friday, I would go to her to state my grievances, but she would again quote the Scriptures, demanding that I obey the elder. Sometimes I wept Friday evening after the dispute on Friday afternoon. Then I would go to Sister Barber the next day to state my grievances, hoping that she would vindicate me. But I would weep again after coming home Saturday evening. I wished I had been born a few years earlier. In one controversy I had very good arguments. I felt that when I pointed them out, she would see how my co-worker was wrong and would support me. But she said, "Whether that co-worker is wrong or not is another matter. While you are accusing your brother before me, are you like one who is bearing the cross? Are you like a lamb?" When she questioned me in this way, I felt very ashamed and I could never forget it. My speech and my attitude that day revealed that I was indeed not like one bearing the cross, nor like a lamb.
 (Collected Works of Watchman Nee, The (Set 2) Vol. 26: Collection of Newsletters (2) & Watchman Nee's Testimony, Chapter 7, Section 4)
 
-#### 67
+#### 67 - the means to be filled with the Holy Spirit
 Though some had been saved, I was still not satisfied, because many in the school and in the town were still not saved. I felt the need to be filled with the Holy Spirit and to receive power from above that I might be able to bring more people to the Lord. Then I called on Miss Margaret Barber. Being immature in spiritual matters, I asked her if it was necessary to be filled with the Holy Spirit in order to obtain power to bring many to salvation. She answered, "Yes." I asked her concerning the means to be filled with the Holy Spirit. She said, "You must present yourself to God that He may fill you with Himself."
 
 (Collected Works of Watchman Nee, The (Set 2) Vol. 26: Collection of Newsletters (2) & Watchman Nee's Testimony, Chapter 7, Section 3)
 
-#### 68
+#### 68 - feeling about sin
 Therefore, if a believer wants to be like God, he should let God's nature deal with him in God's way. Today how many believers have deep feelings about sin? I am ashamed to say that my feeling about sin is not deep enough. Miss M.E. Barber deeply understood sin and God's holiness. Usually one only senses pride or jealousy but does not know what pride and jealousy are. But if you went to Miss Barber, you would have a feeling that you otherwise would not have had. She hated sin the most, and she dealt with sin the best. She dealt with herself very strictly. As a result, she was also extremely straightforward with others. The minute one came into her presence, he realized what pride and jealousy are. She truly knew God. This is why I say that many times we cannot learn truths from a man's preaching, but we can learn from the truth he practices.
 
 (Collected Works of Watchman Nee, The (Set 1) Vol. 10: The Present Testimony (3), Chapter 18, Section 5)
 
-#### 69
+#### 69 - trusting God's provision in the work
 Once, Miss M.E. Barber felt that it was God's will that she prepare about ten rooms for hospitality for believers. These would be apartment-like buildings. She prayed for this and, marvelously, God caused a nearby vocational school to close and it was rented to her. There were twenty rooms altogether, and the monthly rent was only twenty dollars. The matter was thus settled. I felt that it was quite remarkable.
 
 Four years later, some bad news came that the vocational school would be reopened. I heard this news through my father because he was one of the board members of the school. One afternoon I went purposely to visit Miss Barber and asked whether or not she was aware of the news. She said that she had indeed received a notice from the school that it was scheduled to reopen in the fall. The school had hired two engineers from the United States to come, and they were on their way. The matter was very certain in their eyes. I asked her, "Are you going to move?" She said, "No." I asked again, "Have you prayed?" She said, "No, I do not even need to pray this time." A young believer who was there said that she must have been deceived by Satan. She answered, "Do not say that so quickly; let us wait and see." Then I asked her again how she could be so sure. She said, "God does not play jokes on us. He said that He wanted me to manage some living quarters. I have done this. He has not told me to stop; will He cast us out? God does not play jokes on us." But how about the other party? The engineers were on their way, and the opening of the school was definite. But she was enjoying her summer vacation peacefully on the mountain, as if this situation would never occur. Remarkably, when she was about to come down from the mountain, the school sent her a letter telling her that the school would not reopen. They asked her to continue renting the rooms because, while they were preparing to reopen the school, an unexpected financial change had forced them to declare bankruptcy. Oh, once we realize clearly the principle of God's working, no matter what happens, we will know definitely how to deal with it. In this way we will avoid many unnecessary actions and words. If we know God, we will certainly know the way He acts. If we know a person's disposition, we can predict how he will act and speak under various circumstances. If we know God, we will know whether He will answer our prayers or not.
 (Collected Works of Watchman Nee, The (Set 1) Vol. 10: The Present Testimony (3), Chapter 14, Section 3)
 
-#### 70
+#### 70 - concerning our thoughts
 In a letter to Miss Dora Yu, Miss Barber once wrote these few words: "If Satan can take hold of our thought life, he has taken hold of all our life." This is a fact. Do not think these few words were loosely spoken. She had over fifty years of very deep experience with God before she spoke these words. O brothers, do not think that as long as our motives are good, everything is all right. Even though the people we think about and the things we perceive may have changed, if our thoughts and perceptions toward others are the same as before we were saved, we will still make decisions the same way as before. If we cannot overcome our thoughts, we are in the hands of Satan, and we have no way to overcome the enemy.
 
 (Collected Works of Watchman Nee, The (Set 1) Vol. 10: The Present Testimony (3), Chapter 17, Section 5)
 
-#### 71
+#### 71 - how to have power from God
 Once I felt powerless. Although people told me that I could get by, I still felt powerless. So I went to see an older and more experienced sister (Miss Barber). I asked her, "You have great power. But why do I not have any power?" She knew me very well and often helped me in the Word. Looking at me seriously, she said, "Do you want the power that you can feel or the kind you cannot feel? Which one do you want?" As soon as I heard her, I understood. I said, "I do not want the kind that I can feel." She then said, "Remember, there is no need for the person to feel the power coming from the Spirit. Man's responsibility is just to obey God. The power of the Spirit is never to be felt by the person himself." (Of course, the sense in the spirit is a different matter.) Therefore, our duty is to ask God to bind the power of our soul, our own strength. We must submit to God entirely. Everything else is left for God to do and is none of our business. If we exercise the strength of our soul to serve, we can feel it; this is just like the hypnotists who know they will have a certain result if they do certain things. They know what they should do first, what to do next, and what to do as the third step. The danger of many preachers on the platform is that they do not realize that they are actually exercising their own soulish power. They think they have the power; but, in fact, they are working by the power of their soul. They are only gaining people by their psychic strength.
 (Collected Works of Watchman Nee, The (Set 1) Vol. 10: The Present Testimony (3), Chapter 10, Section 4)
 
-#### 72
+#### 72 - concerning praying
 During one visit with Miss Barber, I heard a loud noise coming from downstairs. It interrupted our fellowship. Miss Barber asked me to listen to the noise and the desperate cry. She asked if I knew what it was all about. I said that it sounded like someone praying. She laughed and said, "There is no need to spend so much energy to force God to do something. What is the use of outward commotion when the inner being is not touched at all?"
 (Collected Works of Watchman Nee, The (Set 3) Vol. 61: Matured Leadings in the Lord's Recovery (1), Chapter 2, Section 3)
 
-#### 73
+#### 73 - concerning our thoughts
 After one's heart has been dealt with, he has to learn to control his thoughts. A servant of God must have a high power of concentration. He cannot waste his thoughts carelessly. Miss M. E. Barber once said, "When Satan takes over our thought life, he takes over our whole life." There is a limit to the amount of mental energy we can expend. If we allow our thoughts to wander and roam unchecked, we will find that we cannot focus our mind when we are called to serve in prayer.
 (Collected Works of Watchman Nee, The (Set 3) Vol. 61: Matured Leadings in the Lord's Recovery (1), Chapter 3, Section 2)
 
-#### 74
+#### 74 - concerning money
 In my youth in Fukien, sixty-six brothers and sisters were baptized. Later, I corresponded with Mr. D. M. Panton. In my first letter to him, he told me that Miss M. E. Barber had written to him and had told him that it would be a miracle if six out of the sixty-six remained after ten years. At that time I could not take this word. I thought that these sixty-six brothers and sisters were not ordinary people; they were the pride of their generation. Today, when I count, I find that only four, not six, remain of the sixty-six. At that time we were all poor students, but we did our best to save. By saving ten cents, we could print a hundred gospel tracts. By saving a dollar, we could print a thousand tracts. However, in looking back, I can see that many of them were poor involuntarily; they were forced to take this way. Once they took up a job and earned some money, their thought turned to their own replenishment. The more they acquired things of this world, the more they wanted to acquire. The more they took in the world, the more they wanted to take in. It is like an opium addiction; the more one takes, the more he is addicted. In the end he is unable to quit. You have to learn to consecrate yourself voluntarily from the bottom of your heart; no one should force you to do it.
 (Collected Works of Watchman Nee, The (Set 3) Vol. 61: Matured Leadings in the Lord's Recovery (1), Chapter 14, Section 3)
 
-#### 75
+#### 75 - life vs eloquence and power
 If we know life, we will be able to discern that some so-called holiness and power are not life. Brother Nee told me that when he was young, he would often go to hear famous preachers who visited the big cities in China to hold revival meetings. Afterward, he would go to see Miss M. E. Barber, an older sister who gave him much spiritual help, and would tell her how good the speaking was. Miss Barber went with him on several occasions to hear these preachers. Brother Nee often appreciated the power, eloquence, and knowledge of the speakers. However, Miss Barber pointed out to him that these things are not life but natural human ability. Brother Nee was eventually helped to see that things such as eloquence, ability, and charisma are not life. Miss Barber could discern life because she knew life. We need a vision in order to similarly know life.
 
 (Basic Principles Concerning the Eldership, Chapter 11, Section 1)
 
-#### 76
+#### 76 - proper human living
 Miss M. E. Barber was a sister from the West who served the Lord in China for many years. She was very spiritual and knew the Lord. For a period of time there was a group of young brothers and sisters who often went to her to be taught. Some of these young saints neglected being proper in their human living because they pursued being spiritual. Sometimes Miss Barber would call one of the sisters into her room, bring out a mirror, and ask, “Please look in the mirror, and see how you combed your hair. Have you combed your hair in the last three days?” Miss Barber would speak frankly, saying, “Sister, it is right that you are pursuing spirituality, but you are not a spirit or an angel. You are still a human being; hence, you need to learn how to be a proper human being. You should care for your appearance, just as you care for spiritual matters.” Miss Barber was right. The more a person grows in the Lord, the more human he will become; he will bear a strong aroma of a proper humanity.
 
 (Knowing and Experiencing God as Life, Chapter 4, Section 3)
