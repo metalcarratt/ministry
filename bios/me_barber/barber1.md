@@ -376,122 +376,122 @@ Miss M. E. Barber was a sister from the West who served the Lord in China for ma
 
 (Knowing and Experiencing God as Life, Chapter 4, Section 3)
 
-#### 77
+#### 77 - loving the Lord's appearing
 Since we know that the Lord's second coming is so precious, we should love the Lord's appearing (2 Tim. 4:8). The Bible concludes with “Come, Lord Jesus!” (Rev. 22:20). From the record in the New Testament, it is not difficult to discover that in their hearts the apostles firmly believed that the Lord would come quickly, and they also lived a life in preparation for the Lord's second coming. In the church's history, I know that Miss M. E. Barber was one who lived such a life. On the last day of 1925, Brother Nee went to pray with her, and she prayed, “Lord, do You really mean to say that You will let 1925 pass by, that You will wait until 1926 before You come back? However, on this last day I still pray that You will come back today!” Not long afterward, Brother Nee met her on the street, and again she said to him, “It is really strange that up to this day He has not yet come back.” Do not think that since we are clear concerning the signs of the Lord's coming, we can be slothful and can first love the world and then pursue the Lord when the last week comes. There is no such convenience. We should believe that the Lord is to be feared.
 
 (The Up-to-date Presentation of the God-ordained Way and the Signs Concerning the Coming of Christ, Chapter 7, Section 4)
 
-#### 78
+#### 78 - loving the Lord's appearing
 In my whole life I have never been impressed by another person like I was by Miss M. E. Barber. She was indeed a person who waited for the Lord's return. There are many famous men in Christianity who studied prophecy, such as D. M. Panton. They all knew about the Lord's return. But to my knowledge, only Miss Barber was a person who truly waited for His return. It was a big surprise to her that the Lord had not returned in her time. One year I spent the last day, New Year's eve, with her. She prayed, "Lord, if You want to come now, there is still time this year; You do not have to wait until next year." Her face was towards the Lord's coming. Christians do not wait for a time when we will serve the church; we wait for a time when the Lord will come again. If a believer is not careful, but substitutes other things for the Lord's return, he becomes fallen immediately. Once Miss Barber wrote a hymn concerning the Lord's coming. I did not understand one line she wrote in her hymn. She answered, "Come with me and I will show you." We went out and took a walk. When we were about to turn a corner, she said to me, "The Lord is coming; He is getting closer and closer. Perhaps we will see Him around the corner." In her I saw a person who was waiting for the Lord's return, and I realized what it means to wait for the Lord to return. Her whole life was a life of preparing for the Lord's return. Day by day, while she lived on the earth, she waited eagerly for the Lord to return.
 
 (Collected Works of Watchman Nee, The (Set 3) Vol. 60: Miscellaneous Records of the Kuling Training (2), Chapter 28, Section 1)
 
-#### 79
+#### 79 - concerning not having choice over who we meet with
 When I was at White Teeth Lake, I once argued with Miss Barber. She said she wanted to gather a group of overcomers together. I said, "This is wrong. If you do, you are making yourself a sect." We believe in the truth concerning the overcomers, but we cannot choose a group of overcomers to form an overcomers' group. I knew about a certain situation concerning a brother. A few years later, others knew about it as well. When they found this out, they asked why I tolerated him for such a long time. I thought in my heart, "A sect can choose whom it likes, but we cannot exercise such a choice among God's children; we cannot choose whom we like in the church." Of course, when a man chooses to leave of his own accord, that is a different story.
 
 (Collected Works of Watchman Nee, The (Set 3) Vol. 60: Miscellaneous Records of the Kuling Training (2), Chapter 22, Section 1)
 
-#### 80
+#### 80 - spiritual supply
 I became a Christian at the end of 1919. At the beginning of 1920 I met a sister, Miss M. E. Barber, from whom I received much help. This help did not come merely from her words. Through meeting with her, staying or walking with her, my spirit was nourished. With some people one receives the supply only when they speak. With Miss Barber this was not the case. She only needed to sit in front of you, and you would receive nourishment and the anointing. This is the genuine spiritual supply. It is not a matter of doing something or saying something. Whoever learns more lessons has more spiritual deposit and can render more supply to others.
 (Collected Works of Watchman Nee, The (Set 3) Vol. 62: Matured Leadings in the Lord's Recovery (2), Chapter 21, Section 3)
 
-#### 81
+#### 81 - praying with strong and clean spirit
 In my whole life I have only met two people who prayed with a strong and clean spirit—Brother Sparks and Miss Barber.
 (Collected Works of Watchman Nee, The (Set 3) Vol. 62: Matured Leadings in the Lord's Recovery (2), Chapter 14, Section 5)
 
-#### 82
+#### 82 - drinking the Spirit
 The second stanza of Hymns, #73 written by M. E. Barber says, “Just to breathe the Name of Jesus, / Is to drink of Life indeed.” To call on the name of the Lord Jesus is to drink of the Spirit.
 (Messages to the Trainees in Fall 1990, Chapter 4, Section 2)
 
 M. E. Barber said in a hymn that “to breathe the Name of Jesus is to drink of Life indeed” (Hymns, #73).
 (Messages to the Trainees in Fall 1990, Chapter 5, Section 4)
 
-#### 83
+#### 83 - not forcing God through our prayers
 Once I was talking to Sister M. E. Barber in the living room, and two sisters were praying in the back room. One of them was quite forceful. Miss Barber asked, "Should you pray like she does?" Before I could answer her, she said, "You should never pray like she does. You can never force God to answer your prayer."
 (Collected Works of Watchman Nee, The (Set 3) Vol. 58: Spiritual Judgment and Examples of Judgment, Chapter 47, Section 1)
 
-#### 84
+#### 84 - prayer for healing
 I had problem with my lungs, kidneys, and pancreas. Even now I have a problem with my heart. In 1923 I had peritonitis for the first time. I was in bed for over a month. When I breathed I felt pain. I had a high fever, and the pain was excruciating. At that time Brother Simon Meek gathered some brothers and sisters to pray for me. When he prayed, I did not feel anything. Another sister (M. E. Barber) prayed, "Lord, no one praises You in the grave; if our brother dies, You will not have his praise." As she prayed, something broke through in me, even though the fever was still present, and I was still in pain. The next day I rose up and went to Lo-hsing Pagoda to work on the first issue of The Christian. If we do not have God's word, we should take care of our body. If we have God's word, we should never look at the symptoms. We should consider the symptoms temptations and lies. They cannot remain; they have to go.
 
 (Collected Works of Watchman Nee, The (Set 3) Vol. 58: Spiritual Judgment and Examples of Judgment, Chapter 20, Section 2)
 
-#### 85
+#### 85 - being broken
 Sister M. E. Barber once said that whoever places himself in the Lord's hand will be broken.
 (Collected Works of Watchman Nee, The (Set 3) Vol. 58: Spiritual Judgment and Examples of Judgment, Chapter 54, Section 1)
 
-#### 86
+#### 86 - caring for life vs gift
 What is needed for the building up of a local church is the ministry of life, not the gifts. In order to illustrate this point, I would like to tell a story about Brother Watchman Nee and an elder sister by the name of Miss Barber, who helped him very much. As a young man, Brother Nee always admired good speakers. When he and Miss Barber went to hear a few speakers, Brother Nee told her how wonderful they were. But Miss Barber would say, “That is just doctrine with human eloquence. There is no life there.” In other words, there was no ministry with these ones.
 
 (The Experience of Christ as Life for the Building Up of the Church, Chapter 15, Section 4)
 
-#### 87
+#### 87 - overview
 Although many good missionaries were sent to China by the leading missions, such as the one formed by Brother Hudson Taylor, history proves that there was not much result for the proper church life. Among the many missionaries who went to China was a sister named Margaret E. Barber who was sent there by a British mission. She was accused falsely, called back to England, and later vindicated by the Lord. Then the Lord burdened her to return to China. She was not sent by any mission but went there by faith, settling in a little town named Pagoda, very close to Brother Watchman Nee's hometown. She stayed there purposely, not visiting other places. In a sense, the Lord sowed her there as a grain of wheat. She remained there for years, dying there in 1929.
 
 Brother Nee told me personally the complete story regarding his contact with Sister Barber. Along with other young people, Brother Nee went to her to receive help. She was deep in the Lord and was very strict. She often rebuked the young ones. Brother Nee told me that most of them could not stand her rebukes. Eventually he was nearly the only one who kept going to her, presenting himself to her as an offering for her rebukes. He did this purposely. After a certain period of time had passed, he would feel the need for further rebuking and would go to her for another rebuke, and she did it. In 1929 she went to the Lord. She did not have much that anyone could inherit except a Bible containing many notes, which she willed to Brother Nee. Sister Barber was a seed that was sown, and Brother Nee was a grain that grew out of that seed. Brother Nee, as a seed that grew out of her, became a great vessel for the recovery of the proper church life. This is the way to produce and increase the church in life. It is absolutely not a matter of a golden opportunity.
 
 (Life-Study of John, Chapter 26, Section 1)
 
-#### 88
+#### 88 - hating sin
 Miss M. E. Barber deeply understood sin and God's holiness. Usually one only senses pride or jealousy but does not know what pride and jealousy are. But if you went to Miss Barber, you would have a feeling that you otherwise would not have had. She hated sin the most, and she dealt with sin the best. She dealt with herself very strictly. As a result, she was also extremely straightforward with others. The minute one came into her presence, he realized what pride and jealousy are. She truly knew God. This is why I say that many times we cannot learn truths from a man's preaching, but we can learn from the truth he practices.
 (The Renewing of the Mind, Chapter 1, Section 15)
 
-#### 89
+#### 89 - thoughts
 In a letter to Miss Dora Yu, Miss Barber once wrote these few words: "If Satan can take hold of our thought life, he has taken hold of all our life." This is a fact. Do not think these few words were loosely spoken. She had over fifty years of very deep experience with God before she spoke these words.
 (The Renewing of the Mind, Chapter 1, Section 7)
 
-#### 90
+#### 90 - concerning obeying God's will
 I once asked Miss Barber concerning her experience in obeying the will of God. She said, "Every time that God delays telling me His will, then I reckon that within me there is still a heart unwilling to obey the will of God. Within me there must still be an improper aim. I realized this from many experiences." 
 (Collected Works of Watchman Nee, The (Set 1) Vol. 09: The Present Testimony (2), Chapter 2, Section 4)
 
-#### 91
+#### 91 - seeing the self
 When Miss Barber died, she left a Bible to me. Written in it were the words, "O God, grant me a thorough and unlimited revelation of myself." How deep is this! We often think that as long as we do not see anything wrong that this is good enough. Little do we realize that God has another kind of view regarding us. We will just be fooling ourselves if we do not receive the sight of God. We must have the boldness to be shined upon by God with His light so that He can reveal to us the real picture of ourselves. We have no way to know our own selves unless there is the shining of God. Our own evaluation of ourselves is not trustworthy.
 
 (Collected Works of Watchman Nee, The (Set 1) Vol. 09: The Present Testimony (2), Chapter 2, Section 4)
 
-#### 92
+#### 92 - under the light
 When I began to work, I decided, at whatever cost, to obey the will of God. I thought I was obeying the will of God. However, whenever I went to see Miss Barber, after talking and reading a few verses from the Bible with her, I was aware that I was still lacking. Every time I saw her, I always felt something special—God was there. When you came close to her, you felt God. She had light. She was controlled by the light of God; therefore, when you came close to her, her light condemned your sin.
 (Collected Works of Watchman Nee, The (Set 1) Vol. 09: The Present Testimony (2), Chapter 2, Section 5)
 
-#### 93
+#### 93 - praying to be a vessel of honour (?)
 Once when I was talking to Miss M. E. Barber, she related an interesting story to me. A brother had done something terrible. Later, he repented and came to Miss Barber. She said to the man, "You have repented and have turned back, have you not? Now you must go to the Lord and tell Him, `I was once a vessel in the hand of the potter. Now the vessel is broken.' Do not force the Lord to do anything by saying, `Lord, You must make me another kind of vessel.' You must humble yourself and pray, `Lord, be merciful to me. Let me be a vessel again! I can no longer insist on being a vessel by myself.' The Lord can make you a vessel unto honor, or He can make you a vessel unto dishonor."
 (Collected Works of Watchman Nee, The (Set 3) Vol. 50: Messages for Building Up New Believers (3), Chapter 6, Section 6)
 
-#### 94
+#### 94 - awaiting the Lord's appearing
 Miss M. E. Barber was a person in whom I found no trace of thought of remaining on earth for a long time. She was genuinely waiting for the Lord's return. Once I was walking with her on a street, and she said, "Perhaps, I will meet the Lord when we turn this corner." She asked me to walk at a distance from her on the other side of the sidewalk, and repeated, "I do not know whether this will be the corner for me."
 (Collected Works of Watchman Nee, The (Set 3) Vol. 50: Messages for Building Up New Believers (3), Chapter 18, Section 1)
 
-#### 95
+#### 95 - leaf hide star
 Miss Barber once said that a leaf can hide a star (cf. Matt. 6:22-23).
 
 (Collected Works of Watchman Nee, The (Set 2) Vol. 46: Conferences, Messages, and Fellowship (6), Chapter 6, Section 1)
 
-#### 96
+#### 96 - dying for others to live
 Miss Barber once said, "Lord, I die because I want to leave the field for others to die. Let me stand in the place of death that others may pass into life."
 
 (Collected Works of Watchman Nee, The (Set 2) Vol. 46: Conferences, Messages, and Fellowship (6), Chapter 33, Section 1)
 
-#### 97
+#### 97 - having the Lord's heart / being broken
 Miss Barber once said, "Lord, I am willing to break my heart so that I can have Your heart."
 (Collected Works of Watchman Nee, The (Set 2) Vol. 46: Conferences, Messages, and Fellowship (6), Chapter 34, Section 4)
 
 
-#### 98
+#### 98 - being broken
 Miss Barber once said, "All the bread that is in the Lord's hand, He will surely break." Many times we put ourselves in the Lord's hand, while at the same time we pray privately, "Please do not break me!"
 (Collected Works of Watchman Nee, The (Set 1) Vol. 11: The Present Testimony (4), Chapter 9, Section 2)
 
-#### 99
+#### 99 - being broken
 Friends, when I first began to work for the Lord, I went one day to visit an elderly sister, Miss Barber. We sat in the living room together. She began to ask me, "Is your intention in giving yourself to serve God something that God wants? What does the Lord want you to do?" I answered, "He wants me to serve Him." She then asked, "What if the Lord does not want you to work for Him?" I answered, "He surely wants me to work for Him. I know that." She then began to read with me the passage in Matthew 15 concerning the Lord feeding the four thousand with the seven loaves and the fish. She asked me what this passage meant. I answered that the disciples put the loaves and the fish in the Lord's hand, and when the Lord had blessed them, they became manifold and the four thousand were fed. She then added one word, which I can never forget to this day. Of course, at that time I was quite bewildered. She said that all the loaves in the Lord's hand were first broken before they were distributed. Any loaf that was not broken could not be changed and could not sustain another's life. She also said, "Brother (actually she was older than my parents), please remember that many times we are like the loaves, who would say: `Lord, I will consecrate myself to you.' But even though we have consecrated ourselves, we secretly hope in our heart that the Lord will not break us. We hope that the loaf can always be whole, beautiful, and always remain unchanged. But no loaf that is in His hand is ever unbroken. If you do not want to be broken, it is better that you do not put yourself in His hand."
 (Collected Works of Watchman Nee, The (Set 1) Vol. 11: The Present Testimony (4), Chapter 14, Section 3)
 
-#### 100
+#### 100 - being the right person
 Once I asked Miss Barber how one can produce the sense of the need of life within others and generate a hunger within them. She replied, "On the one hand, this matter depends on God. But on the other hand, there are things that the workers themselves have to be responsible for. Let us not consider God's side for now. On the worker's side, whether or not he can create in others a spiritual hunger does not depend on what he says but on what he is. When an advanced one is put together with one who has not made much progress, that one will spontaneously realize his backwardness. When an obedient one is put together with a disobedient one, the disobedient one will spontaneously recognize his own disobedience. In the same way, when a holy one is put side by side with an unholy one, the unholy one will spontaneously realize his own unholiness. If you are not that type of person, you will not be able to produce that type of hunger in others."
 (Collected Works of Watchman Nee, The (Set 1) Vol. 11: The Present Testimony (4), Chapter 11, Section 5)
 
-#### 101
+#### 101 - being in the Lord's light
 I believe that many of you know of Brother Watchman Nee. When he was young, he received the greatest help from a sister by the name of Miss M. E. Barber. She was very much devoted to the Lord. Brother Nee told me several times, “When I went to see Miss Barber, many times while I was waiting in her living room, I had the sense that I was in the presence of the Lord.” What is this? This is the star of the church. Perhaps when you come to such a person, he could not say much, and he could not answer your question. He may say, “I am not clear.” However, though he says he is not clear, you have the sense that you are under the shining. It is not a matter of teaching or instruction. His word may not be clear, but he himself is transparent, and when you are in his presence, you have the sense not only that he is transparent, but that you are made clear.
 (Finding Christ by the Living Star, Chapter 1, Section 10)
 
-#### 102
+#### 102 - not taking care of her health enough
 When Brother Watchman Nee was young, Sister M. E. Barber was the person who gave him the most help. She never went to see a doctor or took medicine in her whole life, so she lived to only around sixty years of age. Even Paul told Timothy, “No longer drink water only, but use a little wine for the sake of your stomach and your frequent illnesses” (1 Tim. 5:23). We cannot say that Paul had little faith. I feel that M. E. Barber was a little bit too much. Otherwise, she could have lived longer and could have been more useful in the Lord's hand. Therefore, for our benefit and the Lord's, we must learn this matter of exercising faith.
 
 (The Economy of God and the Mystery of the Transmission of the Divine Trinity, Chapter 9, Section 4)
