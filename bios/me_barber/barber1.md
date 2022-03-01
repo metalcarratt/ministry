@@ -496,24 +496,24 @@ When Brother Watchman Nee was young, Sister M. E. Barber was the person who gave
 
 (The Economy of God and the Mystery of the Transmission of the Divine Trinity, Chapter 9, Section 4)
 
-#### 103
+#### 103 - breathing
 As we have seen already from Lamentations, our calling “O Lord Jesus” is our breathing. Hymns, #73 was written by Miss M. E. Barber, an older sister who helped Brother Watchman Nee very much. Stanza 2 says, “Blessed Jesus! Mighty Savior! / In Thy Name is all I need; / Just to breathe the Name of Jesus, / Is to drink of Life indeed.” Three or four years ago, when I told the Lord's people that to breathe is to drink, I was a little doubtful. I had never heard anyone say this, and I thought that I might be too much. However, one night in Los Angeles this hymn was called. While we were singing, I was surprised at the lines that say, “Just to breathe the Name of Jesus, / Is to drink of Life indeed.” At least one other person, Miss Barber, a sister who was deep in the Lord, experienced the same thing.
 (Enjoying the Riches of Christ for the Building Up of the Church as the Body of Christ, Chapter 12, Section 3)
 
-#### 104
+#### 104 - wasting herself
 I have mentioned Miss M. E. Barber many times. To me, no one living on earth today is as much like Mary as she was. She indeed wasted herself. When she was carried to the grave at her burial, one brother spoke on the story of Mary and said that Miss Barber, like Mary, had done all that she could. I agree with that brother. She was indeed a Mary. I know of very few people in this world like her. While she was still alive, I asked her once, "What is the qualification to work?" She answered, "The qualification to work is to be willing to not work for the Lord." When a man is willing to be "shut behind doors," to be insignificant for the Lord's sake, he is worthy to work for the Lord.
 (Collected Works of Watchman Nee, The (Set 2) Vol. 21: The Christian (1934-1940), Chapter 2, Section 3)
 
-#### 105
+#### 105 - breathing
 Hymns, #73 speaks of breathing the name of Jesus and of drinking of life. Watchman Nee received great help from the author of this hymn, Miss M. E. Barber. The second stanza of the hymn says, “Blessed Jesus! Mighty Savior! / In Thy Name is all I need; / Just to breathe the Name of Jesus, / Is to drink of Life indeed.” Miss Barber was quite experienced in the Lord, and she discovered that to breathe the name of the Lord is to drink of the Lord's life. Just to breathe the name of Jesus is to drink of life indeed. When we call, “O Lord Jesus! O Lord Jesus!” we are breathing, and our breathing is our drinking. Hence, we can drink the Lord by calling on His name.
 (The Four Men in the Bible, Chapter 7, Section 1)
 
-#### 106
+#### 106 - sown as a seed
 During the years I was with Brother Nee in China, I saw that he was not working; he was sowing Christ as a seed. He told me that Miss M. E. Barber did not come to China to work. She was in China sowing Christ, even sowing herself in Christ. She was a seed sown into that district in China. Eventually, something grew out of that seed. The Lord’s recovery today is the produce of the seed sown by Sister Barber and Brother Nee. Do not think that our working means very much. No, our working does not mean anything. If you study the Gospels again, you will see that the first Christian worker was Christ Himself. However, He did not work very much. Instead, He was sowing.
 
 (Life-Study of Matthew, Chapter 36, Section 1)
 
-#### 107
+#### 107 - hymns - trusting in the Lord
 The following lines were penned by Miss M. E. Barber on Psalm 23:5 when she had used her last dollar:
 
 There is always something over,
@@ -545,34 +545,33 @@ And His Name for ever bless.
 
 (The Normal Christian Church Life, Chapter 8, Section 6)
 
-#### 108
+#### 108 - sent by God
 When Miss M. E. Barber thought of coming to China to serve the Lord, she foresaw the difficulties of a woman setting out on her own for a foreign country, so she asked advice of Mr. Wilkinson of the Mildmay Mission to the Jews, who said, “A foreign country, no promise of support, no backing of any society—all these present no problem. The question is here: Are you going on your own initiative, or are you being sent by God?” “God is sending me,” she replied. “Then no more questions are necessary,” he said, “for if God sends you, He must be responsible.” Yes, if we go on our own initiative, then distress and shame await us, but if we go as sent ones of God, all responsibility will be His, and we need never inquire how He is going to discharge it.
 (The Normal Christian Church Life, Chapter 8, Section 3)
 
-#### 109
+#### 109 - breathing
 Sister M. E. Barber in one of her hymns also said, “Just to breathe the Name of Jesus, / Is to drink of Life indeed” (stanza 2 of Hymns, #73). Her experience also confirms that to breathe is to drink.
 (The Living Needed for Building Up the Small Group Meetings, Chapter 7, Section 1)
 
-#### 110
+#### 110 - heart riven
 M.E. Barber wrote a hymn with one line which says, "Let the spirit praise Thee,/Though the heart be riven" (Hymns, #377). While we live on earth today, our heart cannot help but be riven at times. The heart has its feelings, yet the spirit can still praise the Lord.
 (Collected Works of Watchman Nee, The (Set 2) Vol. 24: The Overcoming Life, Chapter 11, Section 3)
 
-#### 111
+#### 111 - loving the Lord absolutely
 I loved Miss M.E. Barber because she was a person who truly loved the Lord with all her heart, all her mind, and all her soul. After she died, I found the following note in her Bible next to the verse, "You shall love the Lord your God with all your heart and with all your soul and with all your mind" (Matt. 22:37): "Lord, I thank You that there is such a commandment." We often think that it is a grievous thing that God has so many commandments. But we should say, "Lord, I thank You that there is such a commandment."
 (Collected Works of Watchman Nee, The (Set 2) Vol. 24: The Overcoming Life, Chapter 12, Section 3)
 
-#### 112
+#### 112 - oneness of the church the voice of the Spirit
 Moreover, the church knows what kind of person a brother is. This is reflected in the words of Sister M. E. Barber: "The oneness of the church is the voice of the Holy Spirit." If all the brothers feel that a brother is such a person, then it is certain that he is such a person. We cannot say that all the brothers have misunderstood him. Therefore, a local church must execute God's discipline in its locality.
-
 
 (Collected Works of Watchman Nee, The (Set 3) Vol. 56: The Open Door & The Present Testimony, Chapter 1, Section 2)
 
-### 113
+### 113 - praising God for His ways
 I count it as the greatest blessing of my life to have known Miss Barber. Scores of times, perhaps even hundreds of times, I heard her pray, "Lord, I worship You for Your ways." I know these were her deepest, strongest prayers. Scores of times in prayer she said, "God, I praise Your ways." Please remember that God's ways do not always mean a prospering of our ways, nor are they always beneficial to us. God does not always hear our prayer. We may have prayed with fasting, but the child still dies. At this point, we must say, "God I worship you." At such times, we must still worship the ways of God.
 
 (Collected Works of Watchman Nee, The (Set 3) Vol. 56: The Open Door & The Present Testimony, Chapter 3, Section 8)
 
-#### 114
+#### 114 - breathing
 We need to drink of Him and breathe Him in by calling on His name. A stanza of a hymn written by Miss M. E. Barber has the following lines:
 
 Blessed Jesus! Mighty Savior!
@@ -586,76 +585,76 @@ The way to breathe the name of Jesus is to call, “O Lord Jesus.” No doubt th
 
 (The Spirit and the Body, Chapter 4, Section 3)
 
-#### 115
+#### 115 - overview - rebuking
 Brother Nee testified that he received much help from Sister M. E. Barber, who rebuked him often. She was very deep in the Lord and had especially learned the lesson of the subjective cross of Christ. She learned the lesson of bearing the cross, and she learned the lesson of praying and of living in the light of the Lord's appearing. However, her shortcoming was in the matter of frankness and rebuking. Although she was in China for many years, only one person, Watchman Nee, was raised up through her. According to Brother Nee, there were over twenty young people under her care, but eventually nearly all left. Only Brother Nee continued to return to her to be rebuked.
 (Elders' Training, Book 11: The Eldership and the God-ordained Way (3), Chapter 3, Section 3)
 
-#### 116
+#### 116 - on knowing God's will (leaf)
 Once I was taking a walk with Miss Barber in a garden. After some time the two of us became tired, and we sat down on some chairs under a tree. She said, "There is a bright star in the sky, but I cannot see it because a leaf has blocked the view. Brother Nee, if someone comes and tells me many ways to see the star, I still could not see it even though the ways he said were good. The reason is that my position is wrong; I am standing on the wrong ground." The words she said that night are still fresh in my mind today. She explained that a little leaf could block the light of a big star. Many times, God's will is frustrated by very small things. When you seek after God's will again and again and are still unclear, you should not change the method, but change the person. If you find that you cannot know God's will, it means that there is some blockage between you and God. It may be that God has spoken to you already, but that you are unwilling to obey Him. You have to remove these hindrances. After you have dealt with these problems thoroughly, you will know God's will. In knowing God's will, we have to pay attention to the person rather than the methods.
 
 (How to Know God's Will, Chapter 1, Section 4)
 
-#### 117
+#### 117 - bring the truths to China
 Seventy years ago many crucial, deeper spiritual truths were brought to China through some of the European missionaries, including Sister M. E. Barber. Brother Watchman Nee picked up these deeper truths, such as the subjective death of Christ and the life principles of Christ in resurrection, and propagated them throughout China.
 (The Triune God to Be Life to the Tripartite Man, Chapter 11, Section 2)
 
-#### 118
+#### 118 - meetings
 This meeting used to be conducted by Miss M. E. Barber on the first Tuesday of every month and has continued through all these years. Most of the attendees are workers from Foochow, Chang-Loh, and Lien-Jiang. Although it lasts for only one day, there are four to five meetings. The contents of the meetings concern prayer, mutual sharing, edification, and fellowship. During this critical period we are still able to meet in peace and to encourage one another. The Lord's grace and love are beyond our tongue's description. We can only thank and praise Him.
 (Collected Works of Watchman Nee, The (Set 2) Vol. 32: The Open Door (2), Chapter 9, Section 2)
 
-#### 119
+#### 119 - knowing GOd's will - denying the self
 Miss M. E. Barber, who served the Lord in China, said that if one is willing to deny and reject his self, he has already ninety-nine percent passed through the path of knowing God's will, and the one percent left is just to know it. This has proven to be true in our experience. Beside denying self, there is no other way for us to understand the will of God.
 
 (The Experience of Life, Chapter 8, Section 9)
 
-#### 120
+#### 120 - bring the truths to China
 Then the Lord brought a sister by the name of M. E. Barber to China. I do not believe she received anything from Schwenckfeld, so except for the things of Schwenckfeld, she brought all the items that we have mentioned to China and genuinely practiced them. She also shared all these things with Brother Watchman Nee, who was greatly helped by her. This was the way the Lord took.
 (The Revelation of the Mystery, Chapter 7, Section 2)
 
-#### 121
+#### 121 - bring truths to China
 Then there was also Miss M. E. Barber, who helped Brother Watchman Nee. Through her we became acquainted with the spiritual writings from the West. How could we have been in a faraway, backward country and still have gotten to know spiritual books that even some of you are not familiar with? It was through these top spiritual persons.
 (The World Situation and God's Move, Chapter 5, Section 4)
 
-#### 122
+#### 122 - submitting to God's will
 M. E. Barber once said something to this effect: "If the Lord desires to imprison me for twenty years, I am willing, though I came to China to save people."
 (Collected Works of Watchman Nee, The (Set 1) Vol. 15: Study on Matthew, Chapter 12, Section 3)
 
-#### 123
+#### 123 - thoughts
 Miss M.E. Barber said, "If Satan can control your thought life, he controls the major part of your life." If we are not delivered in our thoughts, we are not delivered from the flesh.
 (Collected Works of Watchman Nee, The (Set 2) Vol. 38: General Messages (2), Chapter 32, Section 3)
 
-#### 124
+#### 124 - riven
 If we have truly seen the great light of the cross, the cross will not merely be a suffering to us, even though from the human perspective, it is still a suffering. Sister M.E. Barber wrote a hymn that says, “Let the spirit praise Thee, / Though the heart be riven” (Hymns, #377). We often reverse the emphasis and say, “The heart is riven, though the spirit praises Thee.” We should realize that the purpose of the experience of the cross is death and termination, not suffering, even though some suffering is involved in the process. Our experience confirms this.
 (Guidelines for the Lord's Table Meeting and the Pursuit in Life, Chapter 12, Section 5)
 
-#### 125
+#### 125 - quick disposition
 According to my observation, those who are genuinely spiritual tend to have quick dispositions. It is difficult for a slow person to become spiritual. Brother Watchman Nee was greatly helped by Miss M. E. Barber, who was much older than he. I never met her, but many who had met her told me that she was a very quick person. Of course, a person who has a quick disposition and does things in a rush also tends to make many mistakes. A wooden chair or a statue of Mary will never make any mistakes because it never moves. Therefore, it is also worthless to be slow. It is difficult for the Holy Spirit to touch a slow person because such a person is indifferent. Everything you say is about the same to him, making it difficult to touch him.
 
 (Vessels Useful to the Lord, Chapter 9, Section 1)
 
-#### 126
+#### 126 - no desire but the Lord
 The full-time serving brothers do not earn their livelihood by preaching; rather, they are those who have sacrificed their future to serve the Lord. May we be those who are in the Lord's heart and learn to receive His breaking. May we say as Sister M. E. Barber said, “Lord, I have no other desire than You.”
 (The Administration of the Church and the Ministry of the Word, Chapter 5, Section 5)
 
-#### 127
+#### 127 - waiting the Lord's coming
 M. E. Barber, who lived in China at the time of Brother Nee and rendered him much help, paid much attention to the Lord's second coming and the rapture. But she paid more attention to life than others. She was waiting for the Lord's coming. Brother Nee told us that she and he went for a walk one time, and as they rounded the corner of a building, she said to him, “Maybe as we turn the corner, He will be there, and we will meet Him.” She was waiting for the Lord's coming and expecting her rapture to such an extent.
 (The Apostles' Teaching, Chapter 8, Section 1)
 
-#### 128
+#### 128 - passing away
 We feel most sorrowful concerning the news of the passing away of Miss Barber in Lo-hsing Pagoda, Fukien. She was one who was very deep in the Lord, and in my opinion, the kind of fellowship she had with the Lord and the faithfulness she expressed to the Lord are rarely found on this earth. In reading the hymn published on the cover of this issue of the magazine, one can imagine the kind of person she was.
 (1930)
 
 (Collected Works of Watchman Nee, The (Set 1) Vol. 08: The Present Testimony (1), Chapter 22, Section 1)
 
-#### 129
+#### 129 - on stopping the work
 Sister M. E. Barber said, “Whoever cannot stop working for the sake of God cannot work for the sake of God.” This is a good word of experience. David knew that God needed a temple, but when God's word came to him, he immediately stopped his work.
 (Knowing Life and the Church, Chapter 16, Section 2)
 
-#### 130
+#### 130 - knowing God's will - denying the self
 Sometimes the Lord wants us to understand His will, but we are distracted by the mixture within us. Miss M. E. Barber knew the Lord. She said, “If you have not forsaken yourself completely, you are only ten percent into your hundred-mile journey of pursuing to know the Lord, but if you have forsaken yourself, you have already finished ninety-nine miles.” This means that the greatest problem in knowing the Lord's will is the self.
 (The Purpose of God's Salvation, Chapter 6, Section 2)
 
-#### 131
+#### 131 - loving the Lord's appearing
 Miss M. E. Barber also lived with such a love for the Lord's appearing. Their hearts were not tied to any person, matter, or thing on this earth. Those who wait for the Lord's coming and love the Lord's appearing will overcome.
 (Crucial Truths in the Holy Scriptures, vol. 6, Chapter 10, Section 5)
 
