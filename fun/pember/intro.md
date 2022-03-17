@@ -31,7 +31,7 @@ incompatible but men clung to it because it softened the revelation of God, forc
 
 They soon found they were forced to blunt the sword of the Spirit which would otherwise have severed the impurity from the genuine truth. This was done. Those parts of the
 Word which were most in conflict with the hopes and feelings of men were allegorised or spiritualised, their literal meaning removed and thus deprived of the power God had
-placed on them. As such they could no longer prevent the entrance of false doctrine. And so far we are talking only about the damage fone by those who were probably
+placed on them. As such they could no longer prevent the entrance of false doctrine. And so far we are talking only about the damage done by those who were probably
 sincere Christians who corrupted the Word of God through short-sightedness, lack of wisdom and the ability to clear the mind of the ideas of common man.
 
 ### The second class of corrupters - those who joined the church out of self interest
