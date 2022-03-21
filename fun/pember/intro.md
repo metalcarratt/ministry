@@ -72,7 +72,7 @@ First, the study of prophecy is commanded and we know the grace of God is given 
 He will also certain acknowledge us as His subjects, we who claim His aid and protection. He will give us grace to help with every need. His covering sheild will cover us when the darts of the enemy are thrown at us. His strength will uphold us when our heart and flesh fail His hand will guide us when we are surrounded by darkness. He will hold our hand as he brings us through the night to gaze on the golden gates of the Paradise of GOd.
 
 ### Second - prophecy teaches us of the end of all things and helps us set our hopes on the world to come
-Second, if a man reads a prophecy and believes it, even if he doesn't understand it, he can't help but be convicted of how transitory the present things are. We easily hold the thought that things will always stay the same, nothing will change, except in ordinary ways be things we can easily see.
+Second, if a man reads a prophecy and believes it, even if he doesn't understand it, he can't help but be convicted of how transitory the present things are. We easily hold the thought that things will always stay the same, nothing will change, except in ordinary ways, by things we can easily see.
 
 Prophecy dispels this false security, and so men either turn away from it or try to explain it away as something not to be worried about. They find it difficult to believe in sudden change. They prefer to speak of future times when the gospel is strong and many men believe in God. They like to push the influence of their own sect but confuse political power with the power of the SPirit. And then they forget who is the current Prince of this World (Satan).
 
