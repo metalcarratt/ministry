@@ -72,3 +72,15 @@ First, the study of prophecy is commanded and we know the grace of God is given 
 He will also certain acknowledge us as His subjects, we who claim His aid and protection. He will give us grace to help with every need. His covering sheild will cover us when the darts of the enemy are thrown at us. His strength will uphold us when our heart and flesh fail His hand will guide us when we are surrounded by darkness. He will hold our hand as he brings us through the night to gaze on the golden gates of the Paradise of GOd.
 
 ### Second - prophecy teaches us of the end of all things and helps us set our hopes on the world to come
+Second, if a man reads a prophecy and believes it, even if he doesn't understand it, he can't help but be convicted of how transitory the present things are. We easily hold the thought that things will always stay the same, nothing will change, except in ordinary ways be things we can easily see.
+
+Prophecy dispels this false security, and so men either turn away from it or try to explain it away as something not to be worried about. They find it difficult to believe in sudden change. They prefer to speak of future times when the gospel is strong and many men believe in God. They like to push the influence of their own sect but confuse political power with the power of the SPirit. And then they forget who is the current Prince of this World (Satan).
+
+Some are inter-denominational, despising the narrowmindedness of the divisions, yet ignoring the fact they hold many opinions of their own which they hold to tightly. And so they preach a gospel of peace and good will from a God who doesn't care about sin and predit a golden age of freedom, equality and friendship. Yet if you test them whether they love their neighbours as themselves they would go away not only in sorrow but in wrath.
+
+Men will readily adopt such ideas for they are consistent with continuing the present order of things. They imagine all will come to perfection without any shock or supernatural intervention.
+
+But if someone looks at the future presented by God they will have very different thoughts. They will see the conflict between good and evil intensify until what is good seems almost annihilated. He would see the cities of the nations in ruins, the sun withdrawing its light, the moon becoming as blood, what is solid becomes distorted like in a dream until with a flash the Son of Man is seen coming in the clouds of heaven. He would see red lightning flash on the earth, many slain by the Lord. Then when the thunders cease and the lightning stops, the earth would come forth from the smoke and ruin as a purified garden of Eden. The city of Jerusalem would appear at the foot of Mount Zion and upon it the temple described by Ezekiel, to which all men would come to worship the Lord.
+
+For it is by the strong arm of the Almighty, not preaching, that the world will come to acknowledge her Creator and at last find rest. The preaching of the gospel now is to call out those chosen by God as a witness to mankind. But as Isaiah says, it is only when the judgements of the Lord are on the earth that its inhabitants will learn righteousness.
+
