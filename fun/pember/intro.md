@@ -84,3 +84,5 @@ But if someone looks at the future presented by God they will have very differen
 
 For it is by the strong arm of the Almighty, not preaching, that the world will come to acknowledge her Creator and at last find rest. The preaching of the gospel now is to call out those chosen by God as a witness to mankind. But as Isaiah says, it is only when the judgements of the Lord are on the earth that its inhabitants will learn righteousness.
 
+The devout ready of prophecy will at least by able to see this and so, when the close of this age comes as a snare upon those who dwell on the earth, he will be prepared and undismayed.
+
