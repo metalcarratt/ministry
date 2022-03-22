@@ -86,3 +86,8 @@ For it is by the strong arm of the Almighty, not preaching, that the world will 
 
 The devout reader of prophecy will at least by able to see this and so, when the close of this age comes as a snare upon those who dwell on the earth, he will be prepared and undismayed.
 
+### Third - a knowledge of the purpose of God conforms our will to His and leads to sanctification
+Lastly prophecy reveals the mind and will of God. Is this a small thing? If we have been justified in Christ then we need daily sanctification and even more, transformation to the image of God. For that, what better thing to have than a revelation of His mind and purpose for us and the earth of which we dwell? To know how he evaluates the things around us and His judgement on them.
+
+Should we not spend time to know this, to shape our wishes, hopes and aspirations on this? To align our whole mind with it and use every way to spread this knowledge to all men? Should we not prepare ourselves and others for that future we will enter, either after our death or together when our Lord and Saviour returns?
+
