@@ -4,7 +4,7 @@
 
 At the beginning of our study we encounter a popular error regarding the creation
 of the world - an error with a long history and which seems to have come from
-a compromise between the Word of Pagan beliefs.
+a compromise between the Word and Pagan beliefs.
 
 The poet Hesiod tells us the first thing to exist was Chaos,
 > "the yawning and void receptacle for created matter." 
