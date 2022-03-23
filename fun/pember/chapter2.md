@@ -24,3 +24,18 @@ Thus according to Greek and Roman cosmologies the universe sprang from Chaos. Ur
 ## Influencing the Christian world
 
 This belief was widespread at the time of the Lord and also influenced Christians. The Gnostics believed matter was eternal and evil, but unlike the pagans also believed in a Supreme Being who existed from eternity. The genuine Christians were not caught by this error but were still influenced by it in their interpretation of chapter 1 of Genesis. For they made the first verse signify the creation of a confused mass of elements out of which the heavens and earth were formed in six days. Their opinion is with us till today. But such a thought does not match the Bible, as we shall soon see. How great a conflict it has created with the world! How the geological error in this view opens the door for attack against the Bible! How perplexing to understand that time before the sin of Adam! How many young minds have turned away because they could not defend what they were taught was the word of God! And how much precious time has been wasted which could have been better spent?
+
+## Examination of the book of Genesis
+
+Let's turn now to Genesis and try to understand the plain meaning.
+
+> In the beginning God created the heaven and the earth.
+
+'Beginning' refers to the first existence of heaven and earth. Here it is quite clear that God was before all things seen and by His will they came into being. This short sentence disproves the pagan thought that God is one with nature. Nature is His creation, the work of His hands: her years can be numbered and when she was created, but God is everlasting.
+
+### The earth is said to have been "created" while in the six days they were "made"
+
+In this decription the heavens and earth were not moulded out of existing material but created. The Hebrew word 'bara' certainly means to call into being without the aid of existing material. The Hebrew writers treated its meaning as such and Rabbi Nackman says there is no other word to describe the idea of production out of nothing. The popular "development" theories of today indicate the natural bend of human minds. The philosophic poet Lucretius said, "Nothing is even gotten out of nothing by Divine power."
+
+Perhaps the word used here to express 'creation' may have previously meant to form out of existing material, but its use in the Bible is clear. We are told God *created* the heaven and the earth, but not so with the six days following. The work of those days, as we shall see, was quite different; they were a time of restoration and the word 'asah' is generally used.
+
