@@ -17,7 +17,7 @@ Ovid describes it:
 
 And in his "Fasti" he make Janus, whom he identifies with Chaos, say:
 
-> "The ancients used to call me Chaos: for a primeval being am I. See of how remote an age I shall recount the events! This air, full of light, and the three remaining elements, fire, water, and earth, were a confused heap. As soon as this mass was separated through the discord of its component parts, and had dissolvved and passed away into new positions, the flame ascended upwards; a nearer place - that is, nearer to earth - received the air; the earth and the sea settled down to the bottom. Then I, who had been but a mass and shapeless bulk, passed into a form and limbs worthy of a god."
+> "The ancients used to call me Chaos: for a primeval being am I. See of how remote an age I shall recount the events! This air, full of light, and the three remaining elements, fire, water, and earth, were a confused heap. As soon as this mass was separated through the discord of its component parts, and had disolved and passed away into new positions, the flame ascended upwards; a nearer place - that is, nearer to earth - received the air; the earth and the sea settled down to the bottom. Then I, who had been but a mass and shapeless bulk, passed into a form and limbs worthy of a god."
 
 Thus according to Greek and Roman cosmologies the universe sprang from Chaos. Uranus was the first supreme god but was driven from power by his son Cronos (Saturn), who was later replaced by his own son Zeus (Jupiter). Chaos was the first thing in existence and the gods came after.
 
