@@ -1,4 +1,4 @@
-# Introduction - Biblical interpretation. Importance of Prophetic Scripture
+# Chapter 1 - Introduction - Biblical interpretation. Importance of Prophetic Scripture
 
 ## 1. Objection to Christianity because of the diversity of Biblical interpretation
 Before we talk about revelation it would be good to talk about Bible interpretation. These days people argue against Christianity because of the many opinions in it.
