@@ -35,7 +35,25 @@ Let's turn now to Genesis and try to understand the plain meaning.
 
 ### The earth is said to have been "created" while in the six days they were "made"
 
-In this decription the heavens and earth were not moulded out of existing material but created. The Hebrew word 'bara' certainly means to call into being without the aid of existing material. The Hebrew writers treated its meaning as such and Rabbi Nackman says there is no other word to describe the idea of production out of nothing. The popular "development" theories of today indicate the natural bend of human minds. The philosophic poet Lucretius said, "Nothing is even gotten out of nothing by Divine power."
+In this decription the heavens and earth were not moulded out of existing material but created. The Hebrew word 'bara' certainly means to call into being without the aid of existing material. The Hebrew writers treated its meaning as such and Rabbi Nackman says there is no other word to describe the idea of production out of nothing. The popular "development" theories of today indicate the natural bend of human minds. The philosophic poet Lucretius promoted such teachings when he said, "Nothing is even gotten out of nothing by Divine power."
 
 Perhaps the word used here to express 'creation' may have previously meant to form out of existing material, but its use in the Bible is clear. We are told God *created* the heaven and the earth, but not so with the six days following. The work of those days, as we shall see, was quite different; they were a time of restoration and the word 'asah' is generally used.
+
+The word 'asah' means to make or prepare out of existing material, such as to build a ship, errect a house or prepare a meal.
+
+However there are two acts of creaion in the six days. First God created the creatures in the waters and the birds in the sky. These have not only outward bodies but also a life inside which could only have come about from creation. Hence the word is different here. In the same way, man is said to have been created, even though we are told in chapter two that his body was formed from dust. The real man is his soul and spirit; the body, which changes every seven years and must ultimately go to the grave is just the outward shape enabling him to interact with the world.
+
+A third word is used when talking about the forming of man's body - 'yatsar' - whch means to shape or mould like a potter.
+
+In Isaiah it uses all three words:
+
+> I have created him for My glory; I have formed him; yea, I have made him.
+
+Regarding this, Kimchi says:
+
+> I have created him, that is, produced him out of nothing; I have formed him, that is, caused him to exist in a shape or form appointed; I have made him, that is, made the final dispositions and arrangements respecting him
+
+### We may see in part the creative power in man also
+
+So God created the heaven and earth, not merely the material that makes them up. We are not told how He did this: but we can make a guess using a poor analogy. We know that by using our imagination we can not only see scenes of places we have been to in the past, but imagine future events as we like. The things we see are shadowy and fleeting though. Perhaps then the thoughts of God took shape in such a way, but became not untouchable dreams but a beautiful reality established until he willed to change or remove it. It could be the host of suns and planets which make up the universe flashed into being simultaneously at His will.
 
