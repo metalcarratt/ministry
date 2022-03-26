@@ -57,3 +57,30 @@ Regarding this, Kimchi says:
 
 So God created the heaven and earth, not merely the material that makes them up. We are not told how He did this: but we can make a guess using a poor analogy. We know that by using our imagination we can not only see scenes of places we have been to in the past, but imagine future events as we like. The things we see are shadowy and fleeting though. Perhaps then the thoughts of God took shape in such a way, but became not untouchable dreams but a beautiful reality established until he willed to change or remove it. It could be the host of suns and planets which make up the universe flashed into being simultaneously at His will.
 
+### The first verse of Genesis not a summary but the first event
+
+The heaven mentioned in the first verse of Genesis is the starry heaven, not the sky surrounding the earth: since no more is said it might have kept changing but not drastically. However the earth was different:
+
+> And the earth was without form, and void; and darkness was upon the face of the deep.
+
+According to Hebrew, the word 'and' proves that the first verse is not a summary of what happened next, but the first event in the record. If it was a summary the second verse would be the start of the history and would not begin with a conjunction (and). There is an example in Genesis 5:
+
+> This is the book of the generations of Adam
+
+This is a summary of the chapter, and the next verse begins without a conjunction. The second verse of Genesis is therefore not the first detail but the second, which did not affect heaven but only the earth. Now we must look at what was that event.
+
+### The words 'and the earth was without form, and void' describing a catastrophe
+
+In our translation of the Bible verse 2 says "the earth was without form and void." However this is not the same as the Hebrew and illustates the influence of the idea of 'chaos'. Furest says that 'ruin' or 'desolation' is the proper meaning of the word 'without form'. The second word means 'emptiness'. These words are only used in two other places and indicate ruin after destruction caused by the wrath of God.
+
+In Isaiah, after describing the fall of Idumea, it says:
+
+> He shall stretch out upon it the line of confusion, and the stones of emptiness (Isa. 34:11)
+
+Here, 'confusion' and 'emptiness' are the same Hebrew words used in Genesis for 'without form' and 'void'. The sense is that just as an Architect uses care to make a building perfect, the Lord will completely ruin it.
+
+There is not confusion about the meaning of these words. The second passage is even more obvious. Describing the devasation of Judah and Jerusalem, Jeremiah says:
+
+> I beheld th earth, and, lo, it was without form, and void: and the heavens, and they had no light. I beheld the mountains, and lo, they trembled, and all the hills moved lightly. I beheld, and, lo, there was no man, and all the birds of the heavens were fled. I beheld, and, lo, the fruitful place was a wilderness, and all the cities thereof were broken down at the presence of the Lord, and by His fierce anger. For thus hath the Lord said, The whole land shall be desolate; yet will I not make a full end. (Jer. 4:23-37)
+
+The Hebrew word 
