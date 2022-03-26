@@ -83,4 +83,15 @@ There is not confusion about the meaning of these words. The second passage is e
 
 > I beheld th earth, and, lo, it was without form, and void: and the heavens, and they had no light. I beheld the mountains, and lo, they trembled, and all the hills moved lightly. I beheld, and, lo, there was no man, and all the birds of the heavens were fled. I beheld, and, lo, the fruitful place was a wilderness, and all the cities thereof were broken down at the presence of the Lord, and by His fierce anger. For thus hath the Lord said, The whole land shall be desolate; yet will I not make a full end. (Jer. 4:23-37)
 
-The Hebrew word 
+The Hebrew word 'tohu' signifies 'desolation' and 'bohu' is 'emptiness' and the word 'was' can be used as 'to be made' or 'to become'. For example this word is used when the Bible says Lot's wife 'became a pillar of salt' (Gen. 19:26). These are the best meanings for the context of Gen. 1:2, so that is becomes:
+
+> And the earth became desolate and void; and darkness was upon the face of the deep.
+
+If we need further evidence that this verse does not describe a chaotic mass from which God shaped the earth, we have further evidence in Isaiah 45 where it says God did not create the earth 'tohu'. Whatever meaning we give it, this word cannot describe the earth when it was first created. But the translators have made this verse confusing, not comparing the words with other passages of the Bible or they surely would have translated it differently.
+
+## Space between verse 1 and 2 for the geological ages
+
+It is clear then that verse 2 describes the earth as a ruin, but we are not told how long it was between the creation and this ruin. Many ages may have gone by, and it was probably during this time that the earth's crust was formed. Here we can see geology's attack on the Bible is hitting air. There is room between these verses for any length of time. The Bible doesn't describe how the geological formations were made so we are free to believe what we see. The whole process took place before Adam, may have been related to another race of beings, and is not our concern.
+
+We should also note God never reveals things just to satisfy a thirst for knowledge, but only what illustrates His power and Godhead, our fallen condition and its remedy, His love, and His promise to deliver us from sin and restore us to an everlasting life of obedience and joy.
+
