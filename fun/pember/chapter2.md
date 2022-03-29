@@ -95,3 +95,10 @@ It is clear then that verse 2 describes the earth as a ruin, but we are not told
 
 We should also note God never reveals things just to satisfy a thirst for knowledge, but only what illustrates His power and Godhead, our fallen condition and its remedy, His love, and His promise to deliver us from sin and restore us to an everlasting life of obedience and joy.
 
+## Knowledge is dangerous
+
+In this life knowledge is dangerous. Our task in this life is to learn dependence on God, submission to His will. He is working to take us turn us from our own purpose, to keep us from pride. But knowledge causes pride, unless accompanied by grace. It was knowledge that first tempted Eve. And the ones who first invented the arts and sciences were descendents of the murderer Cain.
+
+In these days the leaders of science are too often the leaders of sin, despisers of God and prayer. Unless given special grace man seems unable to bear power without falling.
+
+So the Bible takes the attitude we might expect. It avoids science. God does not forbid us to explore the laws of His universe, but He doesn't aid us by revelation. For the present He would rather our attention be on developing ourselves and our fellow man. But when He returns He will open up the stores of wisdom and delight us with His creative power.
