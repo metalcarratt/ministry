@@ -4,7 +4,7 @@ As the slave of God, Isaiah prophesied concerning the Lord Jesus:
 - Having no beauty that we would desire Him, despised and rejected of men, a man of sorrows
 - His visage was marred more than any man. We shouldn't think His appearance was beautiful
 - He was despised by man
-- He back his back and cheek to those who struck Him
+- He turned his back and cheek to those who struck Him
 - He didn't cry or lift up His voice
 - He didn't quench smoking flax or break a bruised reed
 - He had the tongue of an instructed One
