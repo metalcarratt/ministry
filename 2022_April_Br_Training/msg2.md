@@ -1,0 +1,84 @@
+# Message Two - The Inner Experience of the Indwelling Christ
+
+We need the inner experience in order to have the corporate expression of God.
+
+## I. Building up through inner experience
+
+Heb. 13 - leading ones watching over souls of saints. It's not because of curiosity, but because you care for them. You are shepherding them in mutuality. able to sense, discern, a lack of the inner experience. if many saints were very active in all the aspects of the church life without the inner experience, the building up of the church will not happen. we don't want the Lord to wait 40-50 years and have a new beginning somewhere on the earth. We need inner experience of Christ for the church.
+
+### A. Ephesians on the church - talks about the riches of Christ and how the Spirit is making home in us
+
+John, if anyone loves me and keeps my word, my Father and I will come and make an abode with you. We're going to come and build a dwelling place for us in you.
+
+Eph. 3, Christ making His home in our heart. 
+
+### B. key to building the church is the inner experience of Christ
+
+We shouldn't think just because we've been meeting together for decades that surely we are built together. Matt, a man builds his house upon a rock, by living out my words concerning the kingdom. When the rain and floods come the house is not damaged at all. he who builds upon the sand, when the rain and flood come, everything collapses. this indicates, under God's sovereignty, there will be tests, not only individually, but of the churches. We will understand and realise the actual situation. In our mind, we must be built together. We are build up together if all of us are having an inner experience of the all inclusive Christ. This is the key. All the brothers caring for the saints in the churches, loving them. The churches cannot be built if the saints in that locality are not having the inner experiences of the indwelling Christ.
+
+A little remark about being tested. In my re-reading of Revelation, it seems every time there's something fresh, I paid attention to the Lord's speaking to each of the seven churches. Speaking through the messenger in that church. He spoke something specific to each church. Are we not genuine local churches, as there were in Asia? Of course we are. They were all golden lampstands. Are the churches now not golden lampstands? Of course they are. But we may not have a realisation of the Lord's speaking to us, where we are. I've wondered. The Lord spoke to the messenger. Are there messengers? Are there brothers in a local church, that can speak a word from the Lord, concerning that church to the church? We should expect, not fear, the Lord knows, everything about every local church, He would say exactly the positive points and identify the negative points. He has ordained the apostles to build up the churches. One of the most challenging matters for elders and leading brothers, that we are the church here, but part of the organic body of Christ universally. On one level we all receive the speaking during the seven feasts. But that is speaking to the whole body universally. They you have the "you also, being built up", and the needs in the various local churches are not always the same. There are needs and much positive development, at least potentially. You also are being built into a dwelling place of God in Spirit. We need to consider the burden of this message in the light of the need of the local church in which we are serving. Lord, we want to know, the real need, that we may minister life and care for the church.
+
+### C. Christ builds the church by entering into our spirit and spreading to our soul to occupy our being
+
+For sure he has entered into our spirit. Now it's a matter of spreading. Himself. Not just life as an element. Spreading Himself. This wonderful Person. Into our mind. How much Christ as a Person is in our mind. Into our emotion. Into our will. The goal is to occupy our entire being.
+
+I've been personally concerned about this. Pray again and again. Lord, with these dear saints, strengthen them with power with your spirit into the inner man. make your home in their heart. I cannot truthfully say that the indwelling Christ occupies my entire being. I dare not say that. I long for the day when the Lord will say that. I'm not going to examine myself, introspection. Just stay open to the Lord and pray. Just keep on shining and showing areas where you haven't reached. You search the inward parts and the heart. Lord, occupy our entire being. Wouldn't the Lord be pleased? If, from time to time, when the brother are together you pray this way for the saints. In a small group, confidentially, you might pray by name. Only God can cause growth, we cannot. Parents can feed and watch over their children, but they can't cause them to grow.
+
+## II. Eph. 3:16-21 - prayer for inner experience of indwelling Christ
+
+How much have the leading brothers prayed for this? Paul knelt down. He was chained to a guard. He poured out this prayer. For the experience of the indwelling Christ. At a certain point, it's all we can do. We cannot cause any brother or sister to open up and pray for Christ to spread through their being. But our praying matters. As the Lord answers that prayer. 
+
+### A. strengthened into the inner man; result Christ makes home in our heart
+
+paul didn't say in our spirit, he said in our inner man. are we clear concerning the difference? When we were created man became a living soul. The soul is his person. But when we were regenerated, the most wonderful person came into us into our spirit. This person is now in our spirit, causing a radical change. now, our soul is not our person. Our regenerated, mingled human spirit, where Christ is, has become the inner man. Because the indwelling Christ indwelling in our spirit, has made that part of our being the new person, the new man, in Christ. Our soul is an organ for expressing the indwelling Christ. So the inner man needs to be strengthened. Lord, strengthen the inner man in us and others, making it the strongest part of our tripartite being. He enters our heart through the spreading of he inner man. The person is now spreading, making his home in our heart. Occupy (permanently), possess (it all belongs to him), permate (penetrate every part), saturate. These are all words of experience. Lord, occupy my inner being. I say yes to you. Possess my entire inner being. Permeate and saturate my whole inner being with yourself.
+
+With our heart is our inclination, affection, things that delight us, desires. But now Christ is making His home in our heart, controlling all this. Controlling my inclination, affection, delight and desires. This is an experience under the direct rule of God. What does He do? He supplies and strengthens every inward part with Himself. Surely, right now, in the heavenlies, He is God, He is man, He knows every detail about us. He is searching our whole inward being. He knows what He needs to supply us with. With Himself. We need to take the lead to give the Lord the access to every inward part.
+
+Lord, I pray, for my Christ spreading within me. Lord, I say amen. Settle down. This means to feel at home, to feel comfortable, to stay here. Young people, your imagination is extremely active. What my future will be like, etc. What kind of car, what kind of job. I think it's accurate that for older people, memory is a dominate function of the mind. I remember way back, I tried to sell hearing aids and couldn't. I visited one woman who said something, I have my memories. My memories. There she is, living in her memories. Well, we have an imagination, we have memories. There are certain things, that we still remember, that are damaging us. Certain memories that need to be washed away. There are certainly glorious memories that we may remember forever. WE don't want to live in our dreams, but have the capacity to understand the book of Revelation. Our mind can absorb there prophesies concerning the future and all the signs God uses. This is either happening little by little, day by day, in the minds of the saints, or it's not.
+
+### B. when Christ is able to make home in our heart we will be able to be built up with all the saints
+
+When Christ is able. What do we mean, able? He's omnipotent. Able means, we allow him to make His home in our heart. Rev. 3, behold I stand at the door and knock. If anyone hears my voice and opens the door, I will come in. This is a word to the church in Laodicea. There's a principle here. The Lord doesn't come barging in. He doesn't come in without our permission. We decide, we determine, to what extend he's allowed to make his home in our heart. We will decide where he can go, what he can do, what part of our being he can touch and possess. When Christ is able to make his home in our heart, occupying all the inward parts of our being. WE will be able to be built up with all the saints.
+
+All the saints. Not just certain saints, people like you, same disposition or culture, race, social class or level of education. All the saints. because when Christ is able to make his home in our heart, we are able to be built up with anyone who has had the same kind of experience. I met a brother who I had never met before who grew up in Taiwan. effortlessly we were just together, because there was a parallel in our experience. This can be with any kind of human being. God is no respecter of human beings. no preferences.
+
+Acts, elders, leading brothers, responsible ones. In chapter 20, he called them overseers. we have learned that overseers and elders refer to the same person. What do overseers do? They must be watching over something. they are not just curious. we don't have the right to find out the personal things of others. but to realise, this dear one needs more of Christ spreading into her emotion, this dear one, his will is so strong, we'd better not touch it, lord we pray that he would open up his will to you, that you would transform his will.
+
+Christ prophesied, I will built my church. to fulfil this a local church must enter a state where many saints allow Christ to make his home in their heart. according to your oversight and your care and your contact, what % of the saints in your locality are allowing Christ to make his home in their heart. you may wonder, how can I even ask this? How can I possibly be aware of this? Well, Psalm 23. If we have experience lying down on the green pasture, we can have someone lie down on the green pasture and realise this one cannot stop the activity. If you have walked through the valley of the shadow of death, and here is a saints doing so, because you know what this is, you can understand where they are. in the experience of life (book), chapter on knowing the body. he mentions, if someone really knows the body of Christ he cannot be independent. he is able to discern whether or not a saint truly knows the body. parents can do this to some extent with their children. they have gone through all kinds of things. now they realise, our daughter, 13, is going through a transition period in her life, and the mother has a deep understanding of what is taking place in her, physically, in her soul. that's normal, because she passed through that stage. so we can realise, at least to some extent. Are there many saints who are allowing Christ to make his home in their heart. its not what they say but who they are. the intuition of our spirit properly functioning in care for others.
+
+'make home' in Greek means, 'deep down'. Deeper until he has access to our entire inner being.
+
+you could fly from a major city to Ukraine or Germany. have a burden to shepherd the saints. you meet someone, but effortlessly you become one in the Lord. You can be built up with saints in the Body anywhere. They don't have to be from your country, from your race, from your age, nothing.
+
+### C. rooted and grounded in love
+
+Rooted. Earlier today I was doing my daily reading in the gospel of Mark, chapter 4, reading the parable of the sower. The seed landed in different places. It landed on rocky ground. There was soil, but it's rocky underneath. So immediately the people said, yes, this is wonderful, we received this. These two words: 'no depth' and 'no root'. We know from Eph 4:16, the body will build itself up in love. 3:13 says being rooted and grounded in love. Something to consider. Not to examine ourselves, but to inquire of the Lord. Have you ever prayed about this? Brother Nee has messages on depth. He might have been one of the deepest believers. No root. Jer 17 tree planted by the river. The roots go way way down in the earth. No matter the environment they take in the life supply from the roots. Palm tree. The environment is terrible. But why are they still fruitful? Because the roots go down. So there is a positive need for us to be rooted in the love of the Triune God. Then we can absorb this love.
+
+Need to grow and be built up. Someone like brother Nee would be aware of my depth if I were with him. That's not to criticise or judge.
+
+No matter our disposition or culture. American culture is shallow. Other cultures are deep. Forgetting what we are, we all have the depth dimension. Breadth, length, height, depth. Depth is the final one. We need this. In every country and local church is the need for saints rooted deeply in love. Sister Lee was like this. Her presence in the meeting was a supply of life. Just greeting her on the street, life and love were flowing. We need this kind of development.
+
+### D. apprehend the dimensions - corporately
+
+If someone is a one liner, they are in a very risky situation. Story. A married couple asked if I would come to their home to fellowship. The especially requested it. I knew both of them. The wife was one of the most intelligent people I had ever met. She wasn't boastful. This is what she said. I've been spending time alone with the Lord, contacting Him, praying to Him. I was praying with the Lord for a long period of time, then the enemy attacked me. He just attacked. I've never experience such a thing like this before. I had a struggle to get back to normal. Now she was afraid of being alone with the Lord. I had never heard of such a situation. But inwardly I was desperately seeking the Lord. Brother Lee's speaking on dimensions helped. I said, the Lord allowed you t have these experiences, but you wen t so far alone individually. This is not a body spirituality. you are not built up. You're so smart, so intense in loving and seeking, this brought you to this realm, the enemy could attack. the response was, spirituality is a body matter. We all have a tendency to emphasis a certain thing, but when we are together you've got breath interacting with length. And here comes height. Eventually here comes depth. So we all become a cube. WE are cubical people, because we all have our portion, but we are not individualistic in our spirituality. this can happen when we are all allowing Christ to make his home in our hearts for the body. 
+
+### E. filled to the fulness of God - corporate
+
+Lord, we want to be filled unto all the fulness of God. This fulness is the church as the body of Christ. 
+
+## III. Paul's spirit, attitude, prayer and faith
+
+He wrote this epistle to Ephesus where he had spent a lot of time. He said I had held nothing back from you, I shared everything with you. He himself went on quite a journey, two years in Caesarea. Boat ride to Rome. Somehow got put into prison. So he himself advanced a great deal during those many years. The heavens were opened to him. he wrote Colossians, Ephesians, from his imprisonment. he knew that he had shared all that was in him, there was so much more the saints needed. the only thing he could do now is kneel down and pray. these verses show Paul's spirit, attitude, prayer and faith. He knew he wouldn't go there again. He did the best thing, which is to pray.
+
+Brother Lee's book on how to Administrate the church, a detailed message on Paul's prayer. He opened up to help us to see more deeply into that prayer. Once you really get into this you hardly know what else to pray. I don't know what to pray. There's one thing that's always new and fresh. I can pray for them, strengthen these dear saints with power into their inner man, so that Christ may make his home in their hearts, that they may be rooted and grounded in love and built up together in the body of Christ. Only the Lord knows brother Nee's last 20 years. But no doubt he prayed. 
+
+### A. what Paul saw, said and cared about were related to the vision of the building up of the church
+
+Everything was related to the building up of the church. 
+
+The burden - I will build my church
+
+### B. we need this spirit, attitude, prayer and faith when we serve God
+
+### C. if we have seen the vision we will have this kind of spirit, attitude, prayer and faith
+
