@@ -1,0 +1,14 @@
+- chosen
+- predestinated
+- loved
+- called
+- redeemed
+- reconciled
+- saved
+- graced
+- made alive
+- raised up
+- seated
+- purchased
+- sealed
+- possessed
