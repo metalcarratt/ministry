@@ -12,3 +12,11 @@
 - purchased
 - sealed
 - possessed
+- guaranteed
+- created
+- become near
+- enlightened
+- strengthened
+- indwelt
+- rooted and grounded
+- filled
