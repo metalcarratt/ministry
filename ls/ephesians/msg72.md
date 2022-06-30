@@ -20,3 +20,13 @@
 - indwelt
 - rooted and grounded
 - filled
+- gifted
+- perfected
+- growing up
+- fitted together
+- knit together
+- renewed
+- sanctified
+- cleansed
+- nourished and cherished
+- armored
