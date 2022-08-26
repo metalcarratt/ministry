@@ -1,3 +1,4 @@
+9. Murder, betrayal, divison result of not following God.
 10. Elijah vs Paul
 12. Transition from OT to NT
 13. Elisha
