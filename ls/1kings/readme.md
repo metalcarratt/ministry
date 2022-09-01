@@ -6,4 +6,5 @@
 15. Jezebel the Apostate church
 16. Division
 17. Elisha's passing away
-18. Elisha's corpse reviving a dead man
+18. 400 years of turning away but there were overcomers
+19. Assyria taking Israel away captive.
