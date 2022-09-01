@@ -6,3 +6,4 @@
 15. Jezebel the Apostate church
 16. Division
 17. Elisha's passing away
+18. Elisha's corpse reviving a dead man
