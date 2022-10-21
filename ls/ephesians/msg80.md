@@ -2,3 +2,5 @@ God, the spirit is not the center of personality. The center of personality is t
 
 The only way for Christ to be our person is for Him to make His home in our hearts. 
 
+We grow in Christ only by taking Him as our person. The more we take Christ as our person, the more we grow up into Christ in particular things. The result is that we put on more of the church life.
+
