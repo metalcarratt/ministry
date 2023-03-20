@@ -10,5 +10,5 @@ end of the day. This shows we need transformation.
 
 Because the teaching in Christianity does not
 include the high peak of the divine revelation
-it has become stale and any Christians and
+it has become stale and many Christians and
 even leaders have no goal.
