@@ -26,8 +26,8 @@ Birth
 ## God the Spirit
 
 > Mt 1:18 Now **the origin of Jesus Christ** was in this way: His mother, Mary, after she had been engaged to Joseph, before they came together, was **found to be with child of the Holy Spirit**.
-> 
-Mt 1:20 But while he pondered these things, behold, an angel of the Lord appeared to him in a dream, saying, Joseph, son of David, do not be afraid to take Mary your wife, for **that which has been begotten in her is of the Holy Spirit**.
+
+> Mt 1:20 But while he pondered these things, behold, an angel of the Lord appeared to him in a dream, saying, Joseph, son of David, do not be afraid to take Mary your wife, for **that which has been begotten in her is of the Holy Spirit**.
 
 ## God all three
 
