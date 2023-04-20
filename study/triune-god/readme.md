@@ -16,7 +16,7 @@ Speaking
 
 > Mt 2:22 But because he heard that Archelaus was reigning over Judea in place of his father Herod, he was afraid to go there; and **having been divinely instructed in a dream**, he departed into the regions of Galilee.
 
-Mt 2:23 And he came and settled in a city called Nazareth, so that **what was spoken through the prophets** might be fulfilled, He shall be called a Nazarene.
+> Mt 2:23 And he came and settled in a city called Nazareth, so that **what was spoken through the prophets** might be fulfilled, He shall be called a Nazarene.
 
 ## God the Son
 
