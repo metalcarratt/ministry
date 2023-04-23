@@ -18,6 +18,10 @@ Speaking
 
 > Mt 2:23 And he came and settled in a city called Nazareth, so that **what was spoken through the prophets** might be fulfilled, He shall be called a Nazarene.
 
+> Mt 3:9 And do not presume to say within yourselves, We have Abraham as our father; for I tell you that **God is able, out of these stones, to raise up children to Abraham**.
+
+> Mt 3:17 And behold, **a voice out of the heavens, saying, This is My Son, the Beloved, in whom I have found My delight**.
+
 ## God the Son
 
 Birth
@@ -45,11 +49,21 @@ Birth
 
 > Mt 2:23 And he came and settled in a city called Nazareth, so that what was spoken through the prophets might be fulfilled, **He shall be called a Nazarene**.
 
+> Mt 3:12-13 I baptize you in water unto repentance, but **He who is coming after me** is stronger than I, whose sandals I am not worthy to carry. **He Himself will baptize you in the Holy Spirit and fire, Whose winnowing fan is in His hand. And He will thoroughly cleanse His threshing floor and will gather His wheat into the barn, but the chaff He will burn up with unquenchable fire**.
+
+Mt 3:14-15 But John tried to prevent Him, saying, It is I who have need of being baptized by You, and **You come to me**? But Jesus answered and said to him, Permit it for now, for **it is fitting for us in this way to fulfill all righteousness**. Then he permitted Him.
+
+Mt 3:16-17 And **having been baptized**, Jesus went up immediately from the water, and behold, the heavens were opened to Him, and He saw the Spirit of God descending like a dove and coming upon Him. And behold, a voice out of the heavens, saying, **This is My Son, the Beloved, in whom I have found My delight**.
+
 ## God the Spirit
 
 > Mt 1:18 Now **the origin of Jesus Christ** was in this way: His mother, Mary, after she had been engaged to Joseph, before they came together, was **found to be with child of the Holy Spirit**.
 
 > Mt 1:20 But while he pondered these things, behold, an angel of the Lord appeared to him in a dream, saying, Joseph, son of David, do not be afraid to take Mary your wife, for **that which has been begotten in her is of the Holy Spirit**.
+
+> Mt 3:11 I baptize you in water unto repentance, but He who is coming after me is stronger than I, whose sandals I am not worthy to carry. He Himself will **baptize you in the Holy Spirit and fire**,
+
+> Mt 3:16 And having been baptized, Jesus went up immediately from the water, and behold, the heavens were opened to Him, and He saw **the Spirit of God descending like a dove and coming upon Him**.
 
 ## God all three
 
