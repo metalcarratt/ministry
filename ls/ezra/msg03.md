@@ -1,0 +1,7 @@
+- Cyrus decreed the ch of israel go back
+- They set up the altar
+- They started building th house.
+- The opposers came in to frustrate and stop the building.
+- The prophets encouraged them to continue.
+- king Darius confirmed
+- the house was rebuilt
