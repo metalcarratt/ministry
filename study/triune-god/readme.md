@@ -68,6 +68,12 @@ Birth
 
 > Mt 4:16 The people sitting in darkness have seen **a great light**; and to those sitting in the region and shadow of death, to them **light has risen**.”
 
+> Mt 4:19 And He said to them, Come after Me, and **I will make you fishers of men**.
+
+> Mt 4:23 And Jesus went about in all of Galilee, teaching in their synagogues and **proclaiming the gospel of the kingdom** and **healing every disease and every sickness among the people**.
+
+
+
 
 
 ## God the Spirit
