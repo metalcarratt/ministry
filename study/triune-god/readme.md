@@ -18,11 +18,17 @@ Speaking
 
 > Mt 2:23 And he came and settled in a city called Nazareth, so that **what was spoken through the prophets** might be fulfilled, He shall be called a Nazarene.
 
+> Mt 4:4 But He answered and said, It is written, “Man shall not live on bread alone, but on **every word that proceeds out through the mouth of God**.”
+
+Creating / Building?
+
 > Mt 3:9 And do not presume to say within yourselves, We have Abraham as our father; for I tell you that **God is able, out of these stones, to raise up children to Abraham**.
+
+Loving the Son
 
 > Mt 3:17 And behold, **a voice out of the heavens, saying, This is My Son, the Beloved, in whom I have found My delight**.
 
-> Mt 4:4 But He answered and said, It is written, “Man shall not live on bread alone, but on **every word that proceeds out through the mouth of God**.”
+
 
 
 
@@ -54,19 +60,29 @@ Birth
 
 > Mt 2:23 And he came and settled in a city called Nazareth, so that what was spoken through the prophets might be fulfilled, **He shall be called a Nazarene**.
 
+Baptism
+
 > Mt 3:12-13 I baptize you in water unto repentance, but **He who is coming after me** is stronger than I, whose sandals I am not worthy to carry. **He Himself will baptize you in the Holy Spirit and fire, Whose winnowing fan is in His hand. And He will thoroughly cleanse His threshing floor and will gather His wheat into the barn, but the chaff He will burn up with unquenchable fire**.
 
 > Mt 3:14-15 But John tried to prevent Him, saying, It is I who have need of being baptized by You, and **You come to me**? But Jesus answered and said to him, Permit it for now, for **it is fitting for us in this way to fulfill all righteousness**. Then he permitted Him.
 
 > Mt 3:16-17 And **having been baptized**, Jesus went up immediately from the water, and behold, the heavens were opened to Him, and He saw the Spirit of God descending like a dove and coming upon Him. And behold, a voice out of the heavens, saying, **This is My Son, the Beloved, in whom I have found My delight**.
 
+Tempted
+
 > Mt 4:1 Then **Jesus was led up into the wilderness** by the Spirit to be tempted by the devil.
+
+God and Man
 
 > Mt 4:3-4 And the tempter came and said to Him, If **You are the Son of God**, speak that these stones may become loaves of bread. But He answered and said, It is written, “**Man** shall not live on bread alone, but on every word that proceeds out through the mouth of God.”
 
 > Mt 4:6-7 And said to Him, If **You are the Son of God**, cast Yourself down; for it is written, “To His angels He shall give charge concerning You, and on their hands they shall bear You up, lest You strike Your foot against a stone.” Jesus said to him, Again, it is written, “You shall not test the Lord your God.”
 
+Light
+
 > Mt 4:16 The people sitting in darkness have seen **a great light**; and to those sitting in the region and shadow of death, to them **light has risen**.”
+
+Work
 
 > Mt 4:19 And He said to them, Come after Me, and **I will make you fishers of men**.
 
@@ -78,13 +94,19 @@ Birth
 
 ## God the Spirit
 
+Begetting
+
 > Mt 1:18 Now **the origin of Jesus Christ** was in this way: His mother, Mary, after she had been engaged to Joseph, before they came together, was **found to be with child of the Holy Spirit**.
 
 > Mt 1:20 But while he pondered these things, behold, an angel of the Lord appeared to him in a dream, saying, Joseph, son of David, do not be afraid to take Mary your wife, for **that which has been begotten in her is of the Holy Spirit**.
 
+Baptising
+
 > Mt 3:11 I baptize you in water unto repentance, but He who is coming after me is stronger than I, whose sandals I am not worthy to carry. He Himself will **baptize you in the Holy Spirit and fire**,
 
 > Mt 3:16 And having been baptized, Jesus went up immediately from the water, and behold, the heavens were opened to Him, and He saw **the Spirit of God descending like a dove and coming upon Him**.
+
+Testing
 
 > Mt 4:1 Then Jesus was **led up into the wilderness by the Spirit** to be tempted by the devil.
 
