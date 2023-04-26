@@ -28,9 +28,9 @@ Loving the Son
 
 > Mt 3:17 And behold, **a voice out of the heavens, saying, This is My Son, the Beloved, in whom I have found My delight**.
 
+> Mt 5:8-9 Blessed are the pure in heart, for they shall **see God**. Blessed are the peacemakers, for they shall be called the **sons of God**.
 
-
-
+> Mt 5:16 In the same way, let your light shine before men, so that they may see your good works and glorify **your Father** who is in the heavens.
 
 
 ## God the Son
@@ -88,8 +88,13 @@ Work
 
 > Mt 4:23 And Jesus went about in all of Galilee, teaching in their synagogues and **proclaiming the gospel of the kingdom** and **healing every disease and every sickness among the people**.
 
+> Mt 5:17 Do not think that I have come to abolish the law or the prophets; **I have not come to abolish, but to fulfill**.
 
+> Mt 5:34-35 But I tell you not to swear at all; neither by **heaven**, because it is the **throne of God**; Nor by the **earth**, because it is the **footstool of His feet**; nor unto **Jerusalem**, because it is **the city of the great King**;
 
+> Mt 5:45 So that you may become **sons of your Father** who is in the heavens, because **He causes His sun to rise on the evil and the good and sends rain on the just and the unjust**.
+
+> Mt 5:48 You therefore shall be perfect as **your heavenly Father is perfect**.
 
 
 ## God the Spirit
