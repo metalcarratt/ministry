@@ -32,6 +32,28 @@ Loving the Son
 
 > Mt 5:16 In the same way, let your light shine before men, so that they may see your good works and glorify **your Father** who is in the heavens.
 
+> Mt 6:1 But take care not to do your righteousness before men in order to be gazed at by them; otherwise, you have no **reward with your Father who is in the heavens**.
+
+> Mt 6:4 So that your alms may be in secret; and **your Father who sees in secret** will repay you.
+
+> Mt 6:6 But you, when you pray, enter into your private room, and shut your door and pray to **your Father who is in secret**; and **your Father who sees in secret** will repay you.
+
+> Mt 6:8 Therefore do not be like them, for **your Father knows the things that you have need of before you ask Him**.
+
+> Mt 6:9-13 You then pray in this way: **Our Father who is in the heavens**, Your name be sanctified; **Your kingdom** come; **Your will** be done, as in heaven, so also on earth. **Give us** today our daily bread. And **forgive us* our debts, as we also have forgiven our debtors. And do not bring us into temptation, but **deliver us from the evil one**. For **Yours is the kingdom and the power and the glory forever**. Amen.
+
+> Mt 6:14-15 For if you forgive men their offenses, **your heavenly Father will forgive you also**; But if you do not forgive men their offenses, neither will your Father forgive your offenses.
+
+> Mt 6:18 So that you may not appear to men to be fasting, but to **your Father who is in secret**; and **your Father who sees in secret** will repay you.
+
+> Mt 6:26 Look at the birds of heaven. They do not sow nor reap nor gather into barns, yet **your heavenly Father nourishes them**. Are you not of more value than they?
+
+> Mt 6:30 And if **God so arrays the grass of the field**, which is here today and tomorrow is cast into the furnace, will He not much more clothe you, you of little faith?
+
+> Mt 6:32 For all these things the Gentiles are anxiously seeking. For **your heavenly Father knows that you need all these things**.
+
+
+
 
 ## God the Son
 
