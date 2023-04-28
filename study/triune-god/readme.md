@@ -52,6 +52,11 @@ Loving the Son
 
 > Mt 6:32 For all these things the Gentiles are anxiously seeking. For **your heavenly Father knows that you need all these things**.
 
+> Mt 7:11 If you then being evil know how to give good gifts to your children, how much more will **your Father who is in the heavens give good things** to those who ask Him!
+
+> Mt 7:21 Not everyone who says to Me, Lord, Lord, will enter into the kingdom of the heavens, but he who does **the will of My Father who is in the heavens**.
+
+
 
 
 
