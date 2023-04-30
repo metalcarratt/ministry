@@ -28,23 +28,31 @@ Loving the Son
 
 > Mt 3:17 And behold, **a voice out of the heavens, saying, This is My Son, the Beloved, in whom I have found My delight**.
 
+Seen
+
 > Mt 5:8-9 Blessed are the pure in heart, for they shall **see God**. Blessed are the peacemakers, for they shall be called the **sons of God**.
+
+The Father
 
 > Mt 5:16 In the same way, let your light shine before men, so that they may see your good works and glorify **your Father** who is in the heavens.
 
 > Mt 6:1 But take care not to do your righteousness before men in order to be gazed at by them; otherwise, you have no **reward with your Father who is in the heavens**.
 
+> Mt 6:9-13 You then pray in this way: **Our Father who is in the heavens**, Your name be sanctified; **Your kingdom** come; **Your will** be done, as in heaven, so also on earth. **Give us** today our daily bread. And **forgive us* our debts, as we also have forgiven our debtors. And do not bring us into temptation, but **deliver us from the evil one**. For **Yours is the kingdom and the power and the glory forever**. Amen.
+
+> Mt 7:21 Not everyone who says to Me, Lord, Lord, will enter into the kingdom of the heavens, but he who does **the will of My Father who is in the heavens**.
+ 
+Seeing in secret
+
 > Mt 6:4 So that your alms may be in secret; and **your Father who sees in secret** will repay you.
 
 > Mt 6:6 But you, when you pray, enter into your private room, and shut your door and pray to **your Father who is in secret**; and **your Father who sees in secret** will repay you.
 
-> Mt 6:8 Therefore do not be like them, for **your Father knows the things that you have need of before you ask Him**.
-
-> Mt 6:9-13 You then pray in this way: **Our Father who is in the heavens**, Your name be sanctified; **Your kingdom** come; **Your will** be done, as in heaven, so also on earth. **Give us** today our daily bread. And **forgive us* our debts, as we also have forgiven our debtors. And do not bring us into temptation, but **deliver us from the evil one**. For **Yours is the kingdom and the power and the glory forever**. Amen.
-
-> Mt 6:14-15 For if you forgive men their offenses, **your heavenly Father will forgive you also**; But if you do not forgive men their offenses, neither will your Father forgive your offenses.
-
 > Mt 6:18 So that you may not appear to men to be fasting, but to **your Father who is in secret**; and **your Father who sees in secret** will repay you.
+
+Knowin what we need
+
+> Mt 6:8 Therefore do not be like them, for **your Father knows the things that you have need of before you ask Him**.
 
 > Mt 6:26 Look at the birds of heaven. They do not sow nor reap nor gather into barns, yet **your heavenly Father nourishes them**. Are you not of more value than they?
 
@@ -54,7 +62,17 @@ Loving the Son
 
 > Mt 7:11 If you then being evil know how to give good gifts to your children, how much more will **your Father who is in the heavens give good things** to those who ask Him!
 
-> Mt 7:21 Not everyone who says to Me, Lord, Lord, will enter into the kingdom of the heavens, but he who does **the will of My Father who is in the heavens**.
+Forgiving
+
+> Mt 6:14-15 For if you forgive men their offenses, **your heavenly Father will forgive you also**; But if you do not forgive men their offenses, neither will your Father forgive your offenses.
+
+> Mt 5:34-35 But I tell you not to swear at all; neither by **heaven**, because it is the **throne of God**; Nor by the **earth**, because it is the **footstool of His feet**; nor unto **Jerusalem**, because it is **the city of the great King**;
+
+> Mt 5:45 So that you may become **sons of your Father** who is in the heavens, because **He causes His sun to rise on the evil and the good and sends rain on the just and the unjust**.
+
+> Mt 5:48 You therefore shall be perfect as **your heavenly Father is perfect**.
+
+
 
 
 
@@ -115,13 +133,11 @@ Work
 
 > Mt 4:23 And Jesus went about in all of Galilee, teaching in their synagogues and **proclaiming the gospel of the kingdom** and **healing every disease and every sickness among the people**.
 
+Fulfilling the law
+
 > Mt 5:17 Do not think that I have come to abolish the law or the prophets; **I have not come to abolish, but to fulfill**.
 
-> Mt 5:34-35 But I tell you not to swear at all; neither by **heaven**, because it is the **throne of God**; Nor by the **earth**, because it is the **footstool of His feet**; nor unto **Jerusalem**, because it is **the city of the great King**;
-
-> Mt 5:45 So that you may become **sons of your Father** who is in the heavens, because **He causes His sun to rise on the evil and the good and sends rain on the just and the unjust**.
-
-> Mt 5:48 You therefore shall be perfect as **your heavenly Father is perfect**.
+Healing
 
 > Mt 8:3 And stretching out His hand, He touched him, saying, **I am willing; be cleansed**! And immediately his leprosy was cleansed.
 
@@ -129,15 +145,19 @@ Work
 
 > Mt 8:15 And **He touched her hand, and the fever left her**. And she arose and served Him.
 
+Casting out demons
+
 > Mt 8:16 And when evening fell, they brought to Him many who were demon-possessed, and **He cast out the spirits with a word, and all those who were ill He healed**, So that what was spoken through Isaiah the prophet might be fulfilled, saying, “**He Himself took away our infirmities and bore our diseases**.”
-
-> Mt 8:20 And Jesus said to him, The foxes have holes, and the birds of heaven have roosts, but **the Son of Man has nowhere to lay His head**.
-
-> Mt 8:26 And He said to them, Why are you cowardly, you of little faith? Then **He arose and rebuked the winds and the sea, and there was a great calm**. And the men marveled, saying, **What kind of man is this that even the winds and the sea obey Him**?
 
 > Mt 8:32 And **He said to them, Go! And they came out** and went into the hogs. And behold, the whole herd rushed down the steep slope into the sea, and they died in the waters.
 
+Controlling the weather
 
+> Mt 8:26 And He said to them, Why are you cowardly, you of little faith? Then **He arose and rebuked the winds and the sea, and there was a great calm**. And the men marveled, saying, **What kind of man is this that even the winds and the sea obey Him**?
+
+Sojourning on the earth
+
+> Mt 8:20 And Jesus said to him, The foxes have holes, and the birds of heaven have roosts, but **the Son of Man has nowhere to lay His head**.
 
 
 
