@@ -123,6 +123,27 @@ Work
 
 > Mt 5:48 You therefore shall be perfect as **your heavenly Father is perfect**.
 
+> Mt 8:3 And stretching out His hand, He touched him, saying, **I am willing; be cleansed**! And immediately his leprosy was cleansed.
+
+> Mt 8:13 And Jesus said to the centurion, **Go; as you have believed, so be it done to you. And his servant was healed in that hour**.
+
+> Mt 8:15 And **He touched her hand, and the fever left her**. And she arose and served Him.
+
+> Mt 8:16 And when evening fell, they brought to Him many who were demon-possessed, and **He cast out the spirits with a word, and all those who were ill He healed**, So that what was spoken through Isaiah the prophet might be fulfilled, saying, “**He Himself took away our infirmities and bore our diseases**.”
+
+> Mt 8:20 And Jesus said to him, The foxes have holes, and the birds of heaven have roosts, but **the Son of Man has nowhere to lay His head**.
+
+> Mt 8:26 And He said to them, Why are you cowardly, you of little faith? Then **He arose and rebuked the winds and the sea, and there was a great calm**. And the men marveled, saying, **What kind of man is this that even the winds and the sea obey Him**?
+
+> Mt 8:32 And **He said to them, Go! And they came out** and went into the hogs. And behold, the whole herd rushed down the steep slope into the sea, and they died in the waters.
+
+
+
+
+
+
+
+
 
 ## God the Spirit
 
