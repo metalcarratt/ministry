@@ -177,7 +177,7 @@ Forgiving sins
 
 > Mt 9:2 And behold, they brought to Him a paralytic, lying on a bed. And Jesus, seeing their faith, said to the paralytic, Take courage, child; **your sins are forgiven**.
 
-Mt 9:6 But that you may know that **the Son of Man has authority on earth to forgive sins** — then He said to the paralytic, Rise, take up your bed and go to your house. And he rose and went away to his house.
+> Mt 9:6 But that you may know that **the Son of Man has authority on earth to forgive sins** — then He said to the paralytic, Rise, take up your bed and go to your house. And he rose and went away to his house.
 
 Knowing thoughts
 
@@ -203,7 +203,9 @@ The Shepherd
 
 > Mt 9:36 And seeing the crowds, He was moved with compassion for them, because they were harassed and cast away like sheep **not having a shepherd**.
 
+The bridegroom
 
+> Mt 9:15 And Jesus said to them, The sons of the bridechamber cannot mourn as long as the bridegroom is with them, can they? But days will come when **the bridegroom** will be taken away from them, and then they will fast.
 
 
 
@@ -226,9 +228,7 @@ Testing
 
 > Mt 4:1 Then Jesus was **led up into the wilderness by the Spirit** to be tempted by the devil.
 
-The bridegroom
 
-> Mt 9:15 And Jesus said to them, The sons of the bridechamber cannot mourn as long as the bridegroom is with them, can they? But days will come when **the bridegroom** will be taken away from them, and then they will fast.
 
 
 
