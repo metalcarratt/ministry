@@ -50,7 +50,7 @@ Seeing in secret
 
 > Mt 6:18 So that you may not appear to men to be fasting, but to **your Father who is in secret**; and **your Father who sees in secret** will repay you.
 
-Knowin what we need
+Knowing what we need
 
 > Mt 6:8 Therefore do not be like them, for **your Father knows the things that you have need of before you ask Him**.
 
@@ -66,13 +66,21 @@ Forgiving
 
 > Mt 6:14-15 For if you forgive men their offenses, **your heavenly Father will forgive you also**; But if you do not forgive men their offenses, neither will your Father forgive your offenses.
 
+Heaven His throne, the earth the footstool for His feet
+
 > Mt 5:34-35 But I tell you not to swear at all; neither by **heaven**, because it is the **throne of God**; Nor by the **earth**, because it is the **footstool of His feet**; nor unto **Jerusalem**, because it is **the city of the great King**;
+
+Sun and rain on the just and unjust
 
 > Mt 5:45 So that you may become **sons of your Father** who is in the heavens, because **He causes His sun to rise on the evil and the good and sends rain on the just and the unjust**.
 
+Perfect
+
 > Mt 5:48 You therefore shall be perfect as **your heavenly Father is perfect**.
 
+Lord of the harvest
 
+> Mt 9:38 Therefore beseech the Lord of the harvest that He would thrust out workers into His harvest.
 
 
 
@@ -145,11 +153,17 @@ Healing
 
 > Mt 8:15 And **He touched her hand, and the fever left her**. And she arose and served Him.
 
+> Mt 9:22 And Jesus, turning and seeing her, said, Take courage, daughter; your faith has healed you. And **the woman was healed from that hour**.
+
+> Mt 9:29 Then He touched their eyes, saying, According to your faith, let it be done to you. **And their eyes were opened**. And Jesus sternly charged them saying, See that no one knows!
+
 Casting out demons
 
 > Mt 8:16 And when evening fell, they brought to Him many who were demon-possessed, and **He cast out the spirits with a word, and all those who were ill He healed**, So that what was spoken through Isaiah the prophet might be fulfilled, saying, “**He Himself took away our infirmities and bore our diseases**.”
 
 > Mt 8:32 And **He said to them, Go! And they came out** and went into the hogs. And behold, the whole herd rushed down the steep slope into the sea, and they died in the waters.
+
+> Mt 9:32 And as they were going out, behold, they brought to Him a dumb man possessed with a demon. And when **the demon was cast out**, the dumb man spoke. And the crowds marveled, saying, Never has anything like this been seen in Israel.
 
 Controlling the weather
 
@@ -159,6 +173,35 @@ Sojourning on the earth
 
 > Mt 8:20 And Jesus said to him, The foxes have holes, and the birds of heaven have roosts, but **the Son of Man has nowhere to lay His head**.
 
+Forgiving sins
+
+> Mt 9:2 And behold, they brought to Him a paralytic, lying on a bed. And Jesus, seeing their faith, said to the paralytic, Take courage, child; **your sins are forgiven**.
+
+Mt 9:6 But that you may know that **the Son of Man has authority on earth to forgive sins** — then He said to the paralytic, Rise, take up your bed and go to your house. And he rose and went away to his house.
+
+Knowing thoughts
+
+> Mt 9:4 And Jesus, **knowing their thoughts**, said, Why are you thinking evil things in your hearts?
+
+Eating with tax collectors and sinners
+
+> Mt 9:11 And when the Pharisees saw it, they said to His disciples, **Why does your Teacher eat with the tax collectors and sinners**?
+
+A Physician
+
+> Mt 9:12 Now when He heard this, He said, Those who are strong have no need of a **physician**, but those who are ill.
+
+Resurrecting
+
+> Mt 9:25 But when the crowd had been put out, **He entered and took hold of her hand, and the girl rose up**.
+
+Preaching the gospel of the kingdom
+
+> Mt 9:35 And Jesus went about all the cities and the villages, teaching in their synagogues and **preaching the gospel of the kingdom** and healing every disease and every sickness.
+
+The Shepherd
+
+> Mt 9:36 And seeing the crowds, He was moved with compassion for them, because they were harassed and cast away like sheep **not having a shepherd**.
 
 
 
@@ -182,6 +225,14 @@ Baptising
 Testing
 
 > Mt 4:1 Then Jesus was **led up into the wilderness by the Spirit** to be tempted by the devil.
+
+The bridegroom
+
+> Mt 9:15 And Jesus said to them, The sons of the bridechamber cannot mourn as long as the bridegroom is with them, can they? But days will come when **the bridegroom** will be taken away from them, and then they will fast.
+
+
+
+
 
 
 
