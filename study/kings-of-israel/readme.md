@@ -22,3 +22,21 @@
 
 ## Indulging in sexual lust
 > 2Ch 11:21 And Rehoboam loved Maacah the daughter of Absalom above all his wives and his concubines. (For he had taken eighteen wives and sixty concubines and begot twenty-eight sons and sixty daughters.)
+
+## Further points
+### Forsaking the law of Jehovah once he became strong
+> 2Ch 12:1 And when the kingdom of Rehoboam was established and when it was strong, he and all Israel with him forsook the law of Jehovah.
+
+> 2Ch 12:14 And he did what was evil, because he did not prepare his heart to seek Jehovah.
+
+### Punished by God
+> 2Ch 12:2 Then in the fifth year of King Rehoboam, Shishak the king of Egypt came up against Jerusalem, because they had been unfaithful to Jehovah,
+
+### Humbling himself
+> 2Ch 12:6 So the princes of Israel and the king humbled themselves and said, Jehovah is righteous.
+
+> 2Ch 12:12 And when he humbled himself, the anger of Jehovah turned away from him, and He did not destroy them completely; and also things in Judah were good.
+
+### Being the son of an Ammonitess
+> 2Ch 12:13b And his mother’s name was Naamah the Ammonitess.
+
