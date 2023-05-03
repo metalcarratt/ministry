@@ -40,3 +40,19 @@
 ### Being the son of an Ammonitess
 > 2Ch 12:13b And his mother’s name was Naamah the Ammonitess.
 
+# Abijah
+
+## Being fundamental
+
+> 2Ch 13:10-11 But as for us, Jehovah is our God, and we have not forsaken Him; and the priests who minister to Jehovah are the sons of Aaron, and the Levites are in their work. And they offer in smoke to Jehovah burnt offerings morning by morning and evening by evening as well as fragrant incense, and they set the rows of bread upon the pure table, and they care for the golden lampstand and its lamps that it may burn evening by evening; for we keep the charge of Jehovah our God, but you have forsaken Him.
+
+## Trust in the Lord in the battle against Jeroboam
+
+> 2Ch 13:14 And when Judah looked back, the battle was right on them, before and behind; and they cried out to Jehovah, and the priests sounded the trumpets.
+
+## Indulging in sexual lust
+
+> 2Ch 13:21 And Abijah grew stronger; and he took to himself fourteen wives and begot twenty-two sons and sixteen daughters.
+
+
+# Asa
