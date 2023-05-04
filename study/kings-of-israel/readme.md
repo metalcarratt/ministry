@@ -56,3 +56,25 @@
 
 
 # Asa
+
+## Removing the high places
+
+> 2Ch 14:3 For he removed the foreign altars and the high places and smashed the pillars and hewed down the Asherahs,
+
+> 2Ch 14:5 And from all the cities of Judah he removed the high places and the incense altars. And the kingdom was quiet before him.
+
+## Commanding the people to pursue Jehovah
+
+> 2Ch 14:4 And he commanded Judah to pursue Jehovah, the God of their fathers, and perform the law and the commandment.
+
+## Building fortress cities
+
+> 2Ch 14:6 And he built fortress cities in Judah; for the land was quiet and there was no war against him during those years, because Jehovah had given him rest.
+
+## Winning the battle against the Cushites by trusting in Jehovah
+
+> 2Ch 14:11-12 And Asa called out to Jehovah his God and said, O Jehovah, there is none besides You to help us, between the mighty and those without strength. Help us, O Jehovah our God, for we trust in You, and in Your name we have come against this multitude. O Jehovah, You are our God; do not let mortal man prevail against You. And Jehovah struck the Cushites before Asa and before Judah, and the Cushites fled.
+
+## Further putting away abominations at the word of the prophet Azariah
+
+> 2Ch 15:1 And the Spirit of God came upon Azariah the son of Oded.
