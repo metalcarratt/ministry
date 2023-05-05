@@ -78,3 +78,37 @@
 ## Further putting away abominations at the word of the prophet Azariah
 
 > 2Ch 15:1 And the Spirit of God came upon Azariah the son of Oded.
+
+> 2Ch 15:8 And when Asa heard these words, that is, the prophecy of Oded the prophet, he strengthened himself and put away the detestable things from all the land of Judah and Benjamin and from the cities that he had taken in the hill country of Ephraim. And he restored the altar of Jehovah, which was before the portico of Jehovah.
+
+## Gathering many from Ephraim, Manasseh and Simeon who sought Jehovah
+
+> 2Ch 15:9 And he gathered all Judah and Benjamin and the sojourners with them from Ephraim and Manasseh and Simeon, for many from Israel threw in their lot with him when they saw that Jehovah his God was with him.
+
+> 2Ch 15:12 And they entered into a covenant to pursue Jehovah, the God of their fathers, with all their heart and with all their soul,
+
+## Stripping his mother of her position because of her sin against God - not allowing family relationships to muddle his consecration
+
+> 2Ch 15:16 And he also removed Maacah, the mother of Asa the king, from being queen mother because she had made for Asherah an abominable image; and Asa cut down her abominable image and crushed it to powder and burned it at the brook Kidron.
+
+## Not fully removing the high places
+
+> 2Ch 15:17 But the high places were not taken away from Israel; otherwise Asa’s heart was perfect all his days.
+
+## Forming an alliance with the king of Syria
+
+> 2Ch 16:2 And Asa brought out silver and gold from the treasures of the house of Jehovah and the king’s house and sent them to Ben-hadad the king of Syria who was dwelling in Damascus, saying, There is an alliance between me and you as there was between my father and your father. I am now sending you silver and gold; go, break your alliance with Baasha the king of Israel, so that he goes away from me.
+
+### Because the king of Israel had tried to prevent his people from going to Asa (to worship God?)
+
+> 2Ch 16:1 In the thirty-sixth year of the reign of Asa, Baasha the king of Israel went up against Judah and built Ramah to prevent anyone from going out or coming in to Asa the king of Judah.
+
+## Imprisoning a prophet out of anger and oppressing the people
+
+> 2Ch 16:10 Then Asa became angry with the seer and put him in prison in stocks, for he was in a rage against him because of this matter. And Asa oppressed some of the people at that time.
+
+## Becoming diseased in the feet but trusting the physicians rather than Jehovah
+
+> 2Ch 16:12 And in the thirty-ninth year of his reign, Asa became diseased in his feet; his disease was very severe, yet even in his disease he pursued not Jehovah but the physicians.
+
+
