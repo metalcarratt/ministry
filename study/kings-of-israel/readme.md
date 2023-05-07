@@ -111,4 +111,19 @@
 
 > 2Ch 16:12 And in the thirty-ninth year of his reign, Asa became diseased in his feet; his disease was very severe, yet even in his disease he pursued not Jehovah but the physicians.
 
+# Jehoshaphat
+
+## Walking in the ways of David his father
+
+> 2Ch 17:3-4 And Jehovah was with Jehoshaphat because he walked in the former ways of David his father; and he did not pursue the Baals but pursued the God of his father and walked in His commandments and did not do as Israel had done.
+
+> 2Ch 17:6 And his heart was exalted in the ways of Jehovah; and even more, he removed the high places and the Asherahs from Judah.
+
+## Sending the Levites and priests to go around the cities teaching the people from the book of the law
+
+2Ch 17:8-9 And with them he sent the Levites ... and with them, ... the priests. And they taught in Judah, having the book of the law of Jehovah; and they went around all the cities of Judah and taught among the people.
+
+## Established by Jehovah
+
+> 2Ch 17:5 Therefore Jehovah established the kingdom in his hand. And all Judah gave tribute to Jehoshaphat, and he had riches and honor in abundance.
 
