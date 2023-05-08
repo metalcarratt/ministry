@@ -127,3 +127,26 @@
 
 > 2Ch 17:5 Therefore Jehovah established the kingdom in his hand. And all Judah gave tribute to Jehoshaphat, and he had riches and honor in abundance.
 
+## Setting up judges to judge according to Jehovah
+
+2Ch 19:5-6 And he set up judges in the land throughout all the fortified cities of Judah, city by city. And he said to the judges, Consider what you are doing, for you judge not for man but for Jehovah, and He is with you in pronouncing judgment.
+
+## Seeking the Lord and trusting in Him when threatened by war
+
+> 2Ch 20:3-4 And Jehoshaphat was afraid and set his face to pursue Jehovah, and he proclaimed a fast throughout all Judah. And Judah gathered themselves to seek help from Jehovah; indeed out of all the cities of Judah they came to seek Jehovah.
+
+## Allying himself to Ahab through marriage, assisting Ahab in war despite the prophet's warning
+
+> 2Ch 18:1 And Jehoshaphat had great riches and honor, and he allied himself in marriage with Ahab.
+
+> 2Ch 18:3 And Ahab the king of Israel said to Jehoshaphat the king of Judah, Will you go with me to Ramoth-gilead? And Jehoshaphat said to him, I will be as you are; my people will be as your people; we will be with you in battle.
+
+> 2Ch 18:16 And he said, I saw all Israel scattered upon the mountains, like sheep that have no shepherd. And Jehovah said, These have no master; let each of them return to his house in peace.
+
+## Rebuked by the prophet Jehu
+
+> 2Ch 19:2 And Jehu the son of Hanani the seer went out to meet him; and he said to King Jehoshaphat, Should you help the wicked and love those who hate Jehovah? Because of this matter wrath has come upon you from Jehovah.
+
+## Joining himself with Ahaziah to make ships
+
+> 2Ch 20:35 Then after this, Jehoshaphat the king of Judah joined himself to Ahaziah the king of Israel; he acted wickedly in so doing.
