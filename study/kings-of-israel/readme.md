@@ -150,3 +150,41 @@
 ## Joining himself with Ahaziah to make ships
 
 > 2Ch 20:35 Then after this, Jehoshaphat the king of Judah joined himself to Ahaziah the king of Israel; he acted wickedly in so doing.
+
+# Jehoram
+
+## Killing all his brothers
+
+> 2Ch 21:4 And when Jehoram rose up over the kingdom of his father and strengthened himself, he slew all his brothers with the sword as well as some of the princes of Israel.
+
+## Married to Ahab's daughter
+
+> 2Ch 21:6 And he walked in the way of the kings of Israel and as the house of Ahab had done, for Ahab’s daughter was his wife; and he did what was evil in the sight of Jehovah.
+
+## Making high places
+
+> 2Ch 21:11 He also made high places in the hill country of Judah and caused the inhabitants of Jerusalem to commit harlotries and led Judah astray.
+
+## Punished by God
+
+### Revolt of Edom and Libnah
+
+> 2Ch 21:11 He also made high places in the hill country of Judah and caused the inhabitants of Jerusalem to commit harlotries and led Judah astray.
+
+### Rebuked by Elijah
+
+> 2Ch 21:12 And a letter came to him from Elijah the prophet, saying, Thus says Jehovah, the God of David your father, Because you have not walked in the ways of Jehoshaphat your father and in the ways of Asa the king of Judah
+
+### Attacked by Philistines and Arabians who took away all his wives and children except one
+
+> 2Ch 21:16-17 And Jehovah stirred up the spirit of the Philistines and Arabians who are next to the Cushites against Jehoram. And they came up against Judah and broke through into it and carried away all the possessions that were found in the king’s house as well as his sons and his wives; and no son was left to him except Jehoahaz, the youngest of his sons.
+
+### Stuck with bowel illness
+
+> 2Ch 21:18-19a And after all this, Jehovah struck him in his bowels with an incurable illness. And in the course of time, at the end of two years, his bowels came out because of the illness, and he died with severe illnesses.
+
+### Not honoured by the people in death
+
+> 2Ch 21:19b And his people did not make a burning for him, like the burning they had made for his fathers.
+
+
