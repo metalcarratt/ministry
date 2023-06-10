@@ -6,3 +6,5 @@ out of jealousy. some had a pure motive.
 
 we need to know the terms pauls uses, such as defence and confirmation of the gospel,
 fellowship, advancement and faith of the gospel.
+
+need to preach the gospel in a healthy way, in fellowship, defence, confirmation, advancement and faith of the gospel.
