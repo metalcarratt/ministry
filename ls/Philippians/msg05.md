@@ -9,3 +9,6 @@ the types of the spirit
 - spirit of Jesus christ (both)
 - the spirit (all inclusive)
 - compound spirit
+- seven Spirits
+
+some take the idea of 'persons' of the trinity too far and border on tritheism. but the eys of the Lamb are the seven Spirits of god. in the same way god went through a process. this is a description of how he passed through incarnation, human living, death ND resurrection.
