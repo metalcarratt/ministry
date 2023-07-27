@@ -9,3 +9,7 @@ working out our own salvation
 - genuine children of God born of God with his life and nature
 
 received a salvation of the highest standard
+
+pt2
+
+our salvation is to be transformed, especially in our will. this is by his operating the willing in us. when our will is subdued we will be obedient with fear and trembling.
