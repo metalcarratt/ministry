@@ -8,3 +8,7 @@ christ as the offerings he becomes faith in us. the more we enjoy christ as the 
 the more we have an accumulation of faith. this faith is a kind of offering that
 those who ministered chrsit to us can offer to God. the drink offering is something more
 on top of this basic offering.
+
+pt2
+
+two peaks of enjoymentof christ, one is believers faith, other is Paul's martydom. both rejoiced together.
