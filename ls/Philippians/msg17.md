@@ -11,3 +11,11 @@ the believers are, on the contrary, those who serve by the spirit, boast in chri
 have no confidence in the flesh.
 
 paul gave himself as an example of a judaizer.
+
+pt2
+
+pauls example was to show the philippians that although he had been a top one
+of these kinds of people he had had a big turn from those things.
+
+in principle we can be the same as the judaisers if we have any confidence in our
+natural qualifications, ability or intelligence.
