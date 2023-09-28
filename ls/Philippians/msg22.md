@@ -13,3 +13,10 @@ Christian life is like a carnation seed. the seed needs to fall into the ground 
 
 need to be conformed to Christ's death. not just bad part but also good part of
 our humanity, such as our ethics or diplomacy, need to be put to death that Christ's life can flow. even the lord jesus lived a life under death, being baptized at the start of his ministry.
+
+pt3
+
+problem - not willing to put to death the good part of our natural man, especially
+our national characteristics. hinders us from growth in life. many saints stuck here for years.
+
+out resurrection. can only be reached by conformity to death of christ.
