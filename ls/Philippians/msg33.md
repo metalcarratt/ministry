@@ -16,6 +16,6 @@ the compound ointment in exodus is a type of the bountiful supply of the spirit.
 
 pt3
 
-we need to be in the body to enjoy the bountiful supply of the spirit. if we ehave a problem with the saints or the elders then it will be hard for us to enjoy the spirit. but if we are right with the body then even a little turning will cause us to be in the enjoyment.
+we need to be in the body to enjoy the bountiful supply of the spirit. if we have a problem with the saints or the elders then it will be hard for us to enjoy the spirit. but if we are right with the body then even a little turning will cause us to be in the enjoyment.
 
 the best vacation is to pray, "Lord jesus, I love you."
