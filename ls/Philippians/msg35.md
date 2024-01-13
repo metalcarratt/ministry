@@ -15,3 +15,7 @@ we may come to the spirit and get the instant word. or we may come to the word a
 thr spirit is God himself reaching us.
 
 the way to receive the word is by all prayer. this is pray reading. we need to pray and exercise our spirit when we come to the word. then the word becomes the bountiful supply of the spirit, which is God reaching us and becoming our salvation.
+
+pt3
+the word is the prescription, describing all the wonderful elements in the spirit,
+and the spirit is the dose.
