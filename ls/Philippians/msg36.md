@@ -10,3 +10,6 @@ the word should actually be nourishment for us and revelation. if we empty ourse
 removing every veil, and come to the word to pray read it, then it will become
 nourishment and revelation to us.
 
+pt2
+
+the word is for to eat by pray reading. when we pray read the word all the riches in the bountiful supply of the spirit become ours, such as his divinity, humanity, death and resurrection.
