@@ -8,3 +8,7 @@ christ is our pattern who was lowly of mind. god is christ operating in us to fu
 this pattern. to work out our salvation is to copy this pattern, which is to be saved from
 murmurings and reasoning. murmuring and reasonings is a form of rebellion. we need
 to be obedient to the operating god in us who is also christ as our pattern.
+
+pt2
+
+the word of life is our practical pattern and the bountiful supply of the spirit.
