@@ -1,4 +1,4 @@
-forbearance - 'eki' (extensive) + reasonable, considerate, suitable
+forbearance - 'epi' (extensive) + 'eikos' reasonable, considerate, suitable
 
 forbearance is to understand the situation at hand and react in a way that is full of wisdom
 and love. it is not to be excessively strict or excessively loose, but appropriate for the
