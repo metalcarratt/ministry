@@ -6,3 +6,6 @@ only handle it because they had the resurrection life. this forced them to be si
 simple, about how they handled it. worldly people can use many
 crafty means to get out of a situation, but the apostles were forced into a situation
 where they had no choice but to rely on the lord simply and singularity.
+
+pauls conscience testified that the way he dealt with the situation was pure, not 
+in knowledge, ability, strength or wisdom, not in politics.
