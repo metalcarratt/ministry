@@ -9,4 +9,4 @@ only those who have been through affliction and have been comforted can comfort 
 
 in the apostles suffering they were brought to the point they had no confidence in themselves. to have no confidence in themselves mean they could not longer live in themselves but in resurrection.
 
-1 Cor. 1:3b, "the Father of compassion and God of all comfort."
+1 Cor. 1:3b, "the Father of compassions and God of all comfort."
