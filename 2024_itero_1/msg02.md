@@ -25,7 +25,7 @@ The meaning of my existence, my purpose in being here, is God's purpose. Seek Hi
 - Eph. 1:9-11
 He sincerely wants this desire of His heart to become the desire of our heart.
 
-### D. the church the unique means God uses
+### D. the church is the unique means God uses
 #### 2. The church is God's greatest boast in making known to the angelic rulers and authorities His multifarious wisdom for the shame and defeat of the enemy to bring in His kingdom
 #### 3. heading up all things by working Himself into us as **life and light**
 - "heading up" - need to know the church in this aspect
