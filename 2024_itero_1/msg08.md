@@ -5,7 +5,7 @@ Every member of the Body has ministry
 ### A. "his *portion* of this ministry
 
 ### B. 2 Cor. 4:1
-You hve a portion of Christ unique to you, that on one else has. The only way we can know this portion of Christ is from you,
+You have a portion of Christ unique to you, that on one else has. The only way we can know this portion of Christ is from you,
 speaking and ministering. This portion needs to be advanced so you fully complete it.
 
 ### C. 2 Cor. 2:6
