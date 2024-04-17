@@ -25,7 +25,7 @@ The opening/closing word - is it just a summary of points? Or do we pray? Do we 
 A great difference in the way we use the Word of God and how those in Christianity use it. We humble ourselves before the Word to receive light and revelation. May we maintain this great differece.
 If the Word just becomes a textbook, where are we headed? Underlying feeling of this message - this touches the essence of the Lord's recovery. How do we interact with the Word of God? Do we humble
 ourselves? Or is it our "morning newspaper"? Do the saints sense we are brothers who contact the Word in our spirit? The Word is living to us. It is not a textbook. The essence of the Lord's
-recovery is breathing in the Word of God. Touching God as life. The saints follow our example. Are *you* living? Waht do the saints get when *you* speak? Just some points? Or life? Too easy to look
+recovery is breathing in the Word of God. Touching God as life. The saints follow our example. Are *you* living? What do the saints get when *you* speak? Just some points? Or life? Too easy to look
 at the saints. What about us? What about *our* contact with the Word on a daily basis?
 
 ### B. profit in four matters - teaching, conviction, correction, instruction in righteousness
