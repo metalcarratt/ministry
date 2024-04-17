@@ -1,6 +1,6 @@
 # Message Six - Being a vessel unto honor and pursuing righteousness, faith, love, peace with those who call on the Lord out of a pure heart
 How much we need to be equiped! Elders are, primarily, shepherds. Not just knowledge or ability. Who is the pattern for the saints,
-especially the tounger saints? This is how we shepherd the saints - with a pattern. What do they see in our lives? Consider before
+especially the younger saints? This is how we shepherd the saints - with a pattern. What do they see in our lives? Consider before
 the Lord how we can be equiped to be patterns.
 
 Two matters: to be open and to be pure.
