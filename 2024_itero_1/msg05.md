@@ -39,7 +39,7 @@ The order of these points is vitally important. Very tempting to get out of orde
 #### 2. Conviction *comes from* revelation - the more we see God, know God, love God, the more we abhor ourselves and deny ourselves
 - Job. 42:5-6
 
-Is it resulting in conviction? If we can read teh Word every day and not be convicted of our shortcomings, mistakes, failures, something is wrong with our reading of the Bible.
+Is it resulting in conviction? If we can read the Word every day and not be convicted of our shortcomings, mistakes, failures, something is wrong with our reading of the Bible.
 
 #### 3. correction
 Here we can really stumble. You see something not right. "I'm going to set them right!' - we just jumped over revelation and conviction and went straight to correction. But they
