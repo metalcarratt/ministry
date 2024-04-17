@@ -23,7 +23,7 @@ Perfected, strengthened, grounded and established.
 #### 1. Mary graced by God, He came to visit her, He entered into he, stayed in her, to be the very essence of her conceiving a wonderful Person
 Luke 1:28
 
-"You have been graced." Now God is going to come into you. In the OT God visitng man many times, but He never stayed with them. But here He came
+"You have been graced." Now God is going to come into you. In the OT God visited man many times, but He never stayed with them. But here He came
 to a little virgin and stayed with her, entered into her and became the very essence of he conceiving a wonderful Person. True grace as revealed
 here is God coming to us, staying with us, entering into us. This is grace.
 
