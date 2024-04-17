@@ -1,5 +1,5 @@
 # Message Seven - The Lord being with our spirit to be our empowering grace, enabling us to minister the healthy teaching of God's eternal economy, speaking with healthy words of the grace of life for the organic building up of the church as the Body of Christ
-Paul wasn't discouraged despite the declining of the church. He knew the unchangeableness of God. IN our history some have been with us and have left. This is the age of degredation.
+Paul wasn't discouraged despite the declining of the church. He knew the unchangeableness of God. In our history some have been with us and have left. This is the age of degredation.
 Need to stand firm. Many faithful senior saints have gone to be with the Lord. In the last two decades around 20. Thank the Lord many young ones are rising up to serve. Burdened for
 the youger serving saints, that this testimony can be preserved and maintained. Much prayer and fellowship for our next generation. For our younger brothers. So many to learn not only
 the words but also the ways. If you can, wath some of the videos (of Brother Lee speaking). Don't ust listen to the words. Watch how he spoke, his ways.
