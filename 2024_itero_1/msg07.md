@@ -24,7 +24,7 @@ Perfected, strengthened, grounded and established.
 Luke 1:28
 
 "You have been graced." Now God is going to come into you. In the OT God visited man many times, but He never stayed with them. But here He came
-to a little virgin and stayed with her, entered into her and became the very essence of he conceiving a wonderful Person. True grace as revealed
+to a little virgin and stayed with her, entered into her and became the very essence of her conceiving a wonderful Person. True grace as revealed
 here is God coming to us, staying with us, entering into us. This is grace.
 
 - Song of Songs - at the beginning the lover is a horse, at the end she is leaning on her beloved.
