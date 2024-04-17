@@ -26,7 +26,7 @@ Not a time for passive people, indifferent people.
 ### B. righteousness
 
 ### C. faith
-The gospel and the God ordained way should issue out of an oganic union with the Lord, and strengthen and result in more of this
+The gospel and the God ordained way should issue out of an organic union with the Lord, and strengthen and result in more of this
 union.
 
 Faith is a matter of this organic union with the Lord.
