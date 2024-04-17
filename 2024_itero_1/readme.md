@@ -1,3 +1,4 @@
+General subject: Being a vessel unto honor, a fully equiped man of God, by being empowered in the grace which is in Christ Jesus to fully accomplish our ministry in the unique ministry of God's economy
 - [Message 1](msg01.md)
 - [Message 2](msg02.md)
 - [Message 3](msg03.md)
