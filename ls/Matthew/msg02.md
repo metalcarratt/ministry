@@ -5,4 +5,4 @@ of this book.
 Abraham was called out of babel into the good land, and our history is the same.
 
 Abraham lived by faith, meaning he trusted in god. he had to reject himself, set himself
-aside to trust in God. God had to remove Abraham's father, Lot, and Eliezer because they were all people he relied on apart from God. God wanted him to have no one to rely on apart from Himself. this is the meaning of "no longer I but Christ." this is believing in Christ, and this believing is righteousness. don't try to do anything. simply believe in Christ.
+aside to trust in God. God had to remove Abraham's father, Lot, and Eliezer because they were all people he relied on apart from God. God wanted him to have no one to rely on apart from Himself. this is the meaning of "no longer I but Christ." this is believing in Christ, and this believing is righteousness. don't try to do anything. simply believe in Christ. the fallen race always wants to do something. don't try, don't do, don't work anymore. these are the real sons of Abraham.
