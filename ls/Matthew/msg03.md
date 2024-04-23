@@ -41,4 +41,6 @@ also the root of jesse. jesse typifies
 someone who is rooted in christ and as
 a result is branching forth christ.
 
-david -
+david - eigth son, in resurrection. committed one sin.
+
+solomon - result if transgression, repentance, and gods forgiveness. he was the one who built the temple. gods forgiveness needs our transgression. once we transgress, repent, and are forgiven we can be useful to god for his building.
