@@ -13,3 +13,4 @@ their conduct:
 4. not adulterating the word of god - adulterate means to mix something in to gold or wine to artificialy increase its value. some add things to the word of god to make their speaking more interesting
 5. manifesting the truth by living out christ
 
+spiritual photography - the veil needs to be removed before the light of the gospel can shine into others.
