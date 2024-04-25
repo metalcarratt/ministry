@@ -14,3 +14,14 @@ their conduct:
 5. manifesting the truth by living out christ
 
 spiritual photography - the veil needs to be removed before the light of the gospel can shine into others.
+
+gods shining is to illuminate us so that we may know the glory in christs face. the old creation came through god calling light as being  the new creation comes into being through god shining in our hearts. the shining is the face of christ. to experience it we need direct, personal, intimate contact with him.
+
+when god shines in us the treasure comes into us to become the content of our ministry.
+
+five metaphors for the ministers:
+- captives in the triumphant procession
+- incense bearers
+- letters written with christ as the content
+- mirrors beholding and reflecting the glory of the lord
+- earthen vessels containing the priceless treasure.
