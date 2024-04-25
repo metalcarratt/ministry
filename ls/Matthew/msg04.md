@@ -31,3 +31,5 @@ you worship god.
 
 the history of our salvation was all planned
 by god.
+
+mary. as the only virgin among the women, she typifies that the whole of mankind is sinful apart from Christ 
