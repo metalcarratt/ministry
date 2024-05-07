@@ -8,3 +8,5 @@ regarding longing to be raptured, this is a matter of growth in life. higher mat
 being a minister depends on constitution. for this reason, even the young ones can be "little minister" after receiving some constitution.
 
 "earthly tabernacle" - in the bible tabernacle is a particular word used for the dwelling place of God. thus the tabernacle is not only for us to dwell but also for god. it is for us to live and also for us to worship God.
+
+the love of christ constrains us to live to him. to live to him is to seek to please him in all things.
