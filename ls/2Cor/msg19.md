@@ -6,3 +6,5 @@ christ is all of the letters of the alphabet (in rev he is alpha and omega, so h
 it is not enough to learn or teach doctrine. we need to inscribe and be inscribed.
 when something is inscribed in our heart it cannot be removed.
 also, doctrine about something will not help us to live it out. we need that matter inscribed into our hearts.
+
+eventually what has been written in to us will be read by others. this is a testimony, even against those who appose us.
