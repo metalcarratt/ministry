@@ -10,3 +10,5 @@ may call on the lord and still not behold him.
 if we are veiled, no light will be able to generate our inner being. need to pray.
 
 > "lord, take away anything that is covering me. lord, remove my veils. take away any opinions that are veils to me. I want to be completely open, absolutely unveiled."
+
+we need to exercise our spirit by praying. reading the word and calling on the lord with an unveiled heart. then we will behold and be transformed into the same image as the lord spirit.
