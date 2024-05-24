@@ -7,6 +7,10 @@ fornication or coveting. if we try in ourselves we will fail, but if we walk
 by the spirit we will succeed. this is the ministry of the spirit and of righteousness,
 which results in god being expressed through us in our daily living.
 
+righteousness is related to the kingdom. rom 14:17 relates this kingdom to the church life, the place where righteousness is exhibited through the saints living by thr spirit.
+
+the bride in revelation is adorned with righteounesses. this is herwedding garment, sewn together through her daily walk by the spirit. eventually it becomes the jasper of the nj as the expression of the bride of christ
+
 
 **on idols**
 it is easy for young brothers to make an idol in their imagination. they may
