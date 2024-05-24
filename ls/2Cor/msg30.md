@@ -1,4 +1,6 @@
-the ministers and the ministry become one. in 3:8 paul says the ministry of the spirit
+the ministers and the ministry become one. 
+
+in 3:8 paul says the ministry of the spirit
 is in glory and in 3:9 that the ministry of righteousness abounds in glory. this is
 two stages of the ministry. first we get the spirit, which brings glory into us,
 then we live out righteousness, which causes glory to abound in us.
