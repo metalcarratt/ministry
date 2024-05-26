@@ -11,4 +11,4 @@ life was manifested in four ways:
 - without a way out but not without a way out
 - persecuted but not forsaken
 - cast down but not destroyed.
-- 
+
