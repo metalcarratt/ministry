@@ -8,3 +8,4 @@ pauls person:
 - weak in person but bold when absent (a proper kind of boldness)
 - fighting the spiritual warfare, not against flesh and blood but overthrowing reasonings and high things against the knowledge of God.
 
+the reason people do not believe is because of the proud thoughts, high thoughts, and haughty imaginations.
