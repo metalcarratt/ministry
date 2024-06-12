@@ -8,4 +8,4 @@ pauls person:
 - weak in person but bold when absent (a proper kind of boldness)
 - fighting the spiritual warfare, not against flesh and blood but overthrowing reasonings and high things against the knowledge of God.
 
-the reason people do not believe is because of the proud thoughts, high thoughts, and haughty imaginations.
+the reason people do not believe is because of the proud thoughts, high thoughts, and haughty imaginations. in particular the teachings of the judaisers was a high thought against the proper nt gospel. Paul needed the Corinthians obedience to the gospel as a base so that he could judge those who were not.
