@@ -1,1 +1,3 @@
 in giving a testimony we should not go beyond a limit or measure allotted by God.
+
+we all must learn to be restricted in the work. if a brother is "down" (with no heart to serve the Lord) the Lord may come in to bring him "up" (zealous to serve the Lord). But when he is up the Lord may come to limit him and bring him down again. it may be through marriage or the word of an elder. all of this is measured to us by God to keep us within our measure. Paul wanted to go to Rome but he didn't expect to go there in bonds. he also wanted to go to Spain but that never happened. we shouldn't think that just because God is blessing a work that it will increase forever without limitation.
