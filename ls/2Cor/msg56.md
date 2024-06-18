@@ -5,3 +5,5 @@ be bold to say something on their behalf rather than being silent.
 paul did not seek the Corinthians money but them. this is a test to many of the lords workers. some would not say certain things or condemn things because of fear of their supply of money being cut off.
 
 the Saints may be honest but Satan is crouching. if we are not careful he can take advantage of money matters.
+
+paul was not just indicating himself, he was performing surgery on the church. if he did not they would have remained sick. probably he could only speak so frankly toward them because of the intimate concern he had for them.
