@@ -9,3 +9,5 @@ gets infused into us.
 with his speaking comes light. if we have light we will have much to say. the reason people come to church meetings and don't speak is because they are in darkness.
 
 with the word is life. we can have life by coming to the word. all the riches of God's life are in the word.
+
+the word also brings in power. not power like the pentecostal movement but a constant power.
