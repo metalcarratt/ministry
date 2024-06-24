@@ -10,4 +10,4 @@ with his speaking comes light. if we have light we will have much to say. the re
 
 with the word is life. we can have life by coming to the word. all the riches of God's life are in the word.
 
-the word also brings in power. not power like the pentecostal movement but a constant power.
+the word also brings in power. not a mushrooming power like the pentecostal movement but a constant power.
