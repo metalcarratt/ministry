@@ -10,3 +10,4 @@ two vital slogans:
 - outside the camp
 - within the veil
 
+illustration. an egg has a shell and the essence of a chicken. one day a chicken might break out of that shell. if it does we discard the shell for the chicken is the essence. the Jewish religion was the same. in the old Testament christ was there so it was worth treasuring but now he has come out so we must throw it away. it is the same with any other religious activity. if we do anything for god but without christ it will become a shell. if we have such a shell we must bury it in the death waters and become a hebrew, coming back to christ.
