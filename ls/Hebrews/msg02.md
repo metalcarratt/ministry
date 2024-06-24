@@ -5,3 +5,5 @@ obedient to his speaking.
 
 his speaking causes his transfusion. the more he speaks the more his divine element
 gets infused into us.
+
+with his speaking comes light. if we have light we will have much to say. the reason people come to church meetings and don't speak is because they are in darkness.
