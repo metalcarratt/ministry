@@ -16,3 +16,11 @@ the comparison:
 
 the son is a divine gift from God to us, and he is God himself reaching us and being given to us.
 
+compared to angels:
+- having a more excellent name, that of a Son (1:4)
+- designated the Son in resurrection (1:5)
+- seated at the right hand in ascension (1:13)
+- worshipped by the angels in his second coming (1:6)
+- as God inheriting the throne of God's kingdom (1:8)
+- being everlasting in eternity (1:10-12)
+
