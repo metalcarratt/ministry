@@ -6,3 +6,6 @@ two slogans:
 - within the veil
 
 doctrines are like a vanity fair, selling nothing of value. we can either understand the trinity according to doctrine or experience.
+
+## captain
+christ is the captain of our salvation, like Moses and Joshua leading the children of israel out of Egypt and into the good land. this shows salvation is not just redemption but to possess the good land. this needs warfare with a captain leading and even fighting the way in.
