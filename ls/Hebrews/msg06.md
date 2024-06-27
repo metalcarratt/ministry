@@ -19,3 +19,12 @@ christ is the captain of our salvation, like Moses and Joshua leading the childr
 ## high priest
 
 ministers to us whatever we need, after we have fought with him.
+
+his doings:
+- purifying from sin
+- tasting death for us
+- destroying Satan to release us from slavery
+- sanctifying us
+- helping us
+
+do not believe the enemy's lie. just declare the church is wonderful, my wife is the best wife. don't believe others who lie to you.
