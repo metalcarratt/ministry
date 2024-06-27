@@ -17,3 +17,5 @@ christ our salvation is great as:
 christ is the captain of our salvation, like Moses and Joshua leading the children of israel out of Egypt and into the good land. this shows salvation is not just redemption but to possess the good land. this needs warfare with a captain leading and even fighting the way in.
 
 ## high priest
+
+ministers to us whatever we need, after we have fought with him.
