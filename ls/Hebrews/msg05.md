@@ -7,3 +7,5 @@ we are joint heirs. to be an heir, first one needs to be born as a son. second o
 to grow to maturity, and third one needs to be legally appointed. we have been born of God
 and made hiers of God, joint heirs with christ. we will share the lords throne and
 with him inherit all things.
+
+the angels are ministering servants to those who inherit salvation.
