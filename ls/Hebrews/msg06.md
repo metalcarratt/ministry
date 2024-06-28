@@ -28,3 +28,6 @@ his doings:
 - helping us
 
 do not believe the enemy's lie. just declare the church is wonderful, my wife is the best wife. don't believe others who lie to you.
+
+
+>  Christ is able to help us (Hebrews 2:18). He is able to help us to the uttermost. Do not listen to the lies. Do not listen to your environment, weakness, situation, or your husband or wife. Your wife or husband may be a little liar. Your sickness, weakness, and environment may also be lies. Do not believe the lie. The leading brothers should never listen to lies. Often the brothers and sisters are used by the enemy to lie to the leading brothers. For example, someone may say, “The church meeting is getting very low.” When someone says this, there is no need to argue with him. Just close your eyes and say, “This is a lie. Get away. I believe that the church is living and set on high.” This is faith. Try it and see. Sisters, if you say that your husband is no good, I can assure you that he will be no good simply because you have prophesied in such a way. You must cross the river. Do not believe that your husband is no good, but rather say, “My husband is the best one among all men.” If you say this, the Lord will come in to honor your prophecy and make your husband the best one. He is able to help us in all things. He is able to succor us in any kind of situation. 
