@@ -3,8 +3,15 @@ and exaltation. furthermore, the way these are revealed is not shallow, but deep
 "philosophical" and "peculiar"
 
 ## incarnation
-rather than just saying he became a man to die for our sins, heb 2 says he partook
+- (2:14) rather than just saying he became a man to die for our sins, heb 2 says he partook
 of blood and flesh that he might share in the same as the children (2:14). he
 incarnated to become one with us, with our race. he came as a man on our level.
 
-he also came on the same level as us to sympathize with us.
+- (2:17) he also came on the same level as us to sympathize with us.
+
+## death
+- (2:9) tasted death on behalf of everything. this includes the animals. by tasting death for everything he has reconciled everything to himself. also by this, death has been abolished.
+- (2:17) propitiation for sins. appeasing.
+- (2:14) destroyed (brought to none effect) the devil
+- (2:15) released from slavery and the fear of death
+
