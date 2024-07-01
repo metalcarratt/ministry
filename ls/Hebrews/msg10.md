@@ -3,3 +3,6 @@ shining as light. that light is not a natural light such as the sun or a man mad
 like a lamp but is the glory of God. the lamb is the lamp and the walls are made of
 Jasper. Jasper is the appearance of god. so this glory shines from the center to the whole
 city.
+
+the children of israel had gods glory as they wandered in the wilderness. that was
+the pillar of cloud and the pillar of fire that was gods visible expression and lead them the whole time. the goal of crossing the river was to build the temple as gods habitation, and when it was built it was filled with glory. however that is only a type and the real temple was the children of israel themselves. thus the glory filling the temple was a sign that God had filled his people.
