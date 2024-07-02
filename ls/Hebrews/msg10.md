@@ -10,3 +10,5 @@ the pillar of cloud and the pillar of fire that was gods visible expression and 
 the crossing of the river brings us into the glory. Abraham was brought out of the land of idolatry, the red sea brought the children of israel out of the world and the Jordan brought them out of themselves. every time the priest went into the temple he had to wash at the laver, a standing river. this is the same for us when we come before God. eventually we all need to pass the river of glass, the lake of fire before gods throne to enter his glory.
 
 Jesus is the one who entered within the veil. the veil is anything that separates us from the glory of God. by his sufferings he entered the veil and was perfected, that is, glorified. because he is in us and has entered the veil, he can be our captain, leading us within the veil into the same glory, the expression of god.
+
+christ is not only bringing us into glory but also glorifying us. this is for the seed of glory to grow in us till it manifests from within us. part of the reason the lord has not yet returned is that this growth is not yet complete.
