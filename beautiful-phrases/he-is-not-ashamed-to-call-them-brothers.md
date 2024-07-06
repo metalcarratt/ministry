@@ -14,4 +14,5 @@ call us His brothers because we have the same life as Him, and we can call God o
 Now, in the church, the Firstborn Son is singing hymns of praise to the Father. Whenever we sings hymns of praise to the Father, the Lord our Brother, sings in our singing. Do you want to gain more of the Firstborn Son of God?
 Then praise the Father! When we praise the Father, Jesus  as the Firstborn Son of God joins in. In this way we enjoy not only God as our Father, but Jesus as the Firstborn being one with us.
 
-![Uploading Default_children_sitting_at_the_feet_of_their_father_singing_a_1_a92b42a3-345d-4c21-b3cf-7ec057366fc2_0.jpg…]()
+
+![Default_children_sitting_at_the_feet_of_their_father_singing_a_1_a92b42a3-345d-4c21-b3cf-7ec057366fc2_0](https://github.com/metalcarratt/ministry/assets/35354531/614c5673-87f5-4c1e-8962-1265d68a25f0)
