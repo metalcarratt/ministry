@@ -7,3 +7,7 @@ since christ is the almighty God he can be faithful.
 the first mention of a priest in the bible is Genesis 14:18, where melchizedek came to meet Abram and brought him bread and wine. the purpose of a priest is to minister God to man. the bread and wine signify God as our enjoyment.
 
 as we minister christ into others there will eventually be an expression. the expression of god is glory.
+
+if we keep coming to God to serve him eventually he will say don't come to serve me, go to serve man.
+
+he gives help to us by putting us on himself. his sympathizing with us is not just to have His sympathy but to have more of himself added to us
