@@ -8,4 +8,4 @@ we need to understand the trinity according to the word and experience, not our 
 
 > God wanted this unique heir to enter into the good land of the glorious expression ofthe divine being with a group of joint heirs.
 
-this expression is glorious because it is corporate. two million went into the good land with Joshua. as partakers, we enjoy the spirit. as partners we have Jesus christ.
+this expression is glorious because it is corporate. two million went into the good land with Joshua. as partakers, God is the Holy Spirit. as partners God is Jesus christ to us.
