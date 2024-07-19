@@ -6,3 +6,5 @@ remain for christ has already come. it does not mean that if we commit sin we wi
 be forgiven anymore.
 
 the church life is the sabbath today and the church is also best farm for us to ripen so that we may enjoy the coming sabbath rest in the millennial kingdom.
+
+the church is also our refuge. we face a desperate situation on a stormy sea today and need a refuge. heaven is too far away. we need a refuge now.
