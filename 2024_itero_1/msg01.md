@@ -1,6 +1,6 @@
 # General subject: Being a vessel unto honor, a fully equiped man of God, by being empowered in the grace which is in Christ Jesus to fully accomplish our ministry in the unique ministry of God's economy
 
-This training focuses on 2 Tim. Paul's last, dying word to the church. Particular angel - becoming a pattern to the believers. Paul fed his spiritual children with his own living of Christ. What kind of person are we? The person is the ministry, the person is the message.
+This training focuses on 2 Tim. Paul's last, dying word to the church. Particular angle - becoming a pattern to the believers. Paul fed his spiritual children with his own living of Christ. What kind of person are we? The person is the ministry, the person is the message.
 
 # Message One - (a pattern of exercising our spirit) Living in the reality of God's eternal economy for its fulfillment by building up a habit of exercising our spirit, fanning our God-given spirit into flame
 
