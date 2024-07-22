@@ -12,6 +12,6 @@ eventually it produces unbelief.
 
 the living word of God
 
-> whenever we read the bible it must be living, energizing, and sharp enough to divide and discern all the things within us. if it is not, we have not touched the word of god but only black and white letters. the printed matter in black and white letters is neither living nor energizing every word in the bible must be the living and operating word of god. how do we know that we have touched the word of god and not just the printed matter? we know it when the word we have touched is living, energizing, and dividing our soul from our spirit. this is an important principle.
+> whenever we read the bible it must be living, energizing, and sharp enough to divide and discern all the things within us. if it is not, we have not touched the word of god but only black and white letters. the printed matter in black and white letters is neither living nor energizing. every word in the bible must be the living and operating word of god. how do we know that we have touched the word of god and not just the printed matter? we know it when the word we have touched is living, energizing, and dividing our soul from our spirit. this is an important principle.
 
 our spirit may be clear but our mind causes our soul to wander and our soul becomes "sticky", sticking to our spirit. thr word must come in to pierce and separate our spirit from our soul.
