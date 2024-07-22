@@ -10,3 +10,7 @@ eventually it produces unbelief.
 
 > How dangerous it is for our heart to be hardened! We need to pray again and again for the Lord to soften our heart, saying, "Lord, have mercy on me. Soften my heart and never allow it to be hardened."
 
+the living word of God
+
+> whenever we read the bible it must be living, energizing, and sharp enough to divide and discern all the things within us. if it is not, we have not touched the word of god but only black and white letters. the printed matter in black and white letters is neither living nor energizing every word in the bible must be the living and operating word of god. how do we know that we have touched the word of god and not just the printed matter? we know it when the word we have touched is living, energizing, and dividing our soul from our spirit. this is an important principle.
+
