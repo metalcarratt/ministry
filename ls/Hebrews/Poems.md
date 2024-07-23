@@ -28,7 +28,7 @@ in whom is our breath
 - and might release those who because of the fear of death through all their life were held in slavery (Heb 2:15)
 - Stripping off the rulers and the authorities, He made a display of them openly, triumphing over them in it (Col 2:15)
 - Whom God has raised up, having loosed the pangs of death, since it was not possible for Him to be held by it (Acts 2:24)
-  Having therefore a great High Priest who has passed through the heavens, Jesus, the Son of God (Heb 4:14)
+- Having therefore a great High Priest who has passed through the heavens, Jesus, the Son of God (Heb 4:14)
 - sat down on the right hand of the majesty on high (Heb 1:3)
 - crowned with glory and honor (Heb 2:9)
 - But Christ was faithful as a Son over His house, whose house we are (Heb 3:6)
