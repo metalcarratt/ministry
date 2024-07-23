@@ -9,6 +9,7 @@ christ as our high priest in the holy of holies. "my grace is sufficient for you
 
 as our high priest, he:
 - has both the human and divine nature's and knows both the things of God and the things of man.
-- solved the problem of sin, conquered and subdued death, and is leading us into resthas attained the highest position in the universe
+- solved the problem of sin, conquered and subdued death, and is leading us into rest
+- has attained the highest position in the universe
 - has passed through the heavens, stripping of the rulers and authorities, made a show of them and triumphed over them
-- 
+- has been tried in all respects but without sin
