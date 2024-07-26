@@ -5,3 +5,4 @@ hebrews about not entering his rest and not hardening our hearts are words of ri
 
 > in these messages the lord has released a solemn word to us. we must cross the river and go on. do not fool around with the Lord.
 
+"faculties exercised for discriminating" - able to discern between the superior and inferior as well as the milk vs the solid food.
