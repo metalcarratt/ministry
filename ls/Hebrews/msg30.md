@@ -5,3 +5,5 @@ whenever we have a handicap or are unable to go on we need to cross a river.
 thr earth can never be burned, but what grows on it can be. likewise we will not be burned but what we bring forth that is not according to gods economy will be.
 
 'fled for refuge' - an intensified fleeing, to flee intensely.
+
+'an anchor of the soul', 'where the forerunner, Jesus, has entered for us', 'within the veil' - the holy of holies, where God is, within the veil, is our safe place, our refuge, the anchor for our soul the lord Jesus is the forerunner, who took the lead to flee all other things and enter into this safe refuge. now it's up to us to do the same.
