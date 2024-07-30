@@ -58,4 +58,5 @@ ministering bread and wine
 - and as they were eating Jesus took the bread and blest it.. and said, take, eat, this is my body. and he took a cup and gave thanks, and he gave it to them, saying, drink of it, all of you, for this is my blood of the covenant being poured out for many for forgiveness of sins. (Matt 26:26-28)
 - being interpreted king of righteousness, and then also king of Salem, which is king of peace (heb. 7:2)
 - I am the bread of life (John 6:35)
-- 
+- you spread a table before me in the presence of my adveraries (Psa 23:5)
+- having neither beginning of days nor end of life, but likened to the son of ogd, abides a priest perpetually (heb 7:3)
