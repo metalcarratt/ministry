@@ -51,3 +51,11 @@ Ministering
 - But Christ was faithful as a Son over His house, whose house we are (Heb 3:6)
 - within the veil, where the forerunner, Jesus, has entered for us, having become forever a High Priest according to the order of Melchizedek (Heb 6:19-20)
 - For Christ did not enter a holy place made by hands...but into heaven itself, to appear now before the face of God for us (Heb 9:24)
+
+ministering bread and wine
+- having become forever a high priest according to the order of melchizedek (heb 6:20)
+- and melchizidek the king of Salem brought out bread and wine. now he was priest of god the most high. and he blessed him (Gen. 14:18-19)
+- and as they were eating Jesus took the bread and blest it.. and said, take, eat, this is my body. and he took a cup and gave thanks, and he gave it to them, saying, drink of it, all of you, for this is my blood of the covenant being poured out for many for forgiveness of sins. (Matt 26:26-28)
+- being interpreted king of righteousness, and then also king of Salem, which is king of peace (heb. 7:2)
+- I am the bread of life (John 6:35)
+- 
