@@ -3,4 +3,7 @@
 - forgiveness of sins to overcoming of sin
 - cross delivering us from Egypt to his throne bringing us into Canaan
 - from the outer court (earth) to the holy of holies (heaven)
+- from the altar (the cross) to the propitiation cover (the throne of grace)
+- from the christ on earth to the christ in heaven
+- from the suffering Jesus to the glorified christ on the throne
 
