@@ -13,3 +13,5 @@ fighter who had just come back from slaughtering chedorlaomer and rescuing lot.
 > in the book of hebrews, melchizedek is our high priest. we do not want to linger in leviticus but go all the way back to the beginning of Genesis. this is a real recovery. let us go back to Genesis 14 where we see that the priest did not offer sacrifices for pitiful sinners but ministered bread and wine to glorious victors. 
 
 if we slaughter many chedorlaomers (negative things such as religion, et ) during the day the lord will come to us at night to minister the bread and the wine. 
+
+Abraham did not defeat the kings by himself. before the battle he lifted up his hands to God, and during the battle melchizedek must have been praying for him. also, before the battle there was no righteousness nor peace because lot had been captured and the enemies had not been defeated. however after the enemies had been defeated and lot had been rescued the situation was one of righteousness and peace. this is all the doing of melchizedek, who is the king of righteousness and the king of peace.
