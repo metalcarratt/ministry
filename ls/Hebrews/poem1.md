@@ -1,3 +1,4 @@
+```
 We have a great High Priest
 An excellent One in us
 Your throne, O God
@@ -56,5 +57,5 @@ the cup the blood poured out for us (Matt26:28)
 You spread a table in the midst of our adversaries (Psa23:5)
 Our ministering High Priest.
 
-
+```
 
