@@ -82,3 +82,11 @@ lord. open the chambers of our heart.
 amos 8:1 days are coming when I will send a hunger into the land for hearing the words of jehovah
 
 don't assume the lord will speak to us. have we cooperated with what the lord spoke to us last time?
+
+
+# Testing questions
+## 1. Why is it crucial for us to see why the Lord Jesus came down out of heaven to be the bread of life, and how does this impact our relationship with Him?
+
+## 2. Explain what it means to eat, to assimilate, Christ as the bread of life with a view toward the significance of John 6:57.
+
+## 3. Describe the meaning and importance of John 6:63
