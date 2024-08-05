@@ -17,4 +17,6 @@ since the aaronic priesthood deals with sins and the kingly priesthood give us l
 
 
 
-> we all have life and death within us. even your losing your temper or feeling unhappy with the brothers and sisters is death. your inability to praise, pray, or function in the meetings also is death. life never says, "I can't." in life's dictionary there are no such words as "I can't." life always says, "I can. I can do everything. I can function. I can pray. I can shout. I can say amen, and I can praise." whenever you say "I can" that is life. whenever you say "I cant" that is death. in the church life from now on you must avoid saying "I cant". 
+> we all have life and death within us. even your losing your temper or feeling unhappy with the brothers and sisters is death. your inability to praise, pray, or function in the meetings also is death. life never says, "I can't." in life's dictionary there are no such words as "I can't." life always says, "I can. I can do everything. I can function. I can pray. I can shout. I can say amen, and I can praise." whenever you say "I can" that is life. whenever you say "I cant" that is death. in the church life from now on you must avoid saying "I cant".
+
+the differenc between life and resurrection life is resurrection life has been tested by passing through death.
