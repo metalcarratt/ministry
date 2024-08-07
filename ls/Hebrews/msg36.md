@@ -4,3 +4,4 @@ to accomplish gods purpose he had to:
 - make himself our God and we his people according to the law of life
 - grant us the inward ability to know him in life in an automatic way
 
+all these things have already been given to us, bequeathed to us, and we just need to enjoy them.
