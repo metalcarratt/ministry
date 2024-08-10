@@ -7,3 +7,5 @@ to the veil. we know when christ died the veil was rent and also in revelation w
 the golden altar before the throne. this shows that they belong together and it was
 only the old dispensation that caused a covered to be placed over the ark. 1 kings
 also mentions the altar belonged to the "oracle."
+
+the incense altar is related to prayer and to pray is to enter the holy of holies. we pray with christ as our incense and he replies by the sweet smell of the incense we burn.
