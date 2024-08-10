@@ -8,4 +8,4 @@ the golden altar before the throne. this shows that they belong together and it 
 only the old dispensation that caused a covered to be placed over the ark. 1 kings
 also mentions the altar belonged to the "oracle."
 
-the incense altar is related to prayer and to pray is to enter the holy of holies. we pray with christ as our incense and he replies by the sweet smell of the incense we burn.
+the incense altar is related to prayer and to pray is to enter the holy of holies. we pray with christ as our incense and he replies by the sweet smell of the incense we burn. also it is now easy for us to touch our spirit when we pray, because the veil has been taken away.
