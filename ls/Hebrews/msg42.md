@@ -8,3 +8,5 @@ to us and that we can enjoy right away by faith.
 after his first manifestation christ is in heaven before the face of God, interceeding
 for us. he is also working as the spirit to write the law of the spirit of life
 into our inward being to make us the same as him. 
+
+in his second manifestation christ will glorify us and bring us into the full sonship.
