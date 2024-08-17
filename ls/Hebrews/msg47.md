@@ -13,3 +13,5 @@ the bible is full of bequests. if we have faith we can substantiate them. to unb
 we are aiming at the holy of holies and the new jerusalem, both things of faith.
 
 faith is God himself. we need more of his transfusing.
+
+to take God we need faith.
