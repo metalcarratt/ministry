@@ -5,3 +5,5 @@ we can find the lord because he is with his people of faith.
 the lord is the author, pioneer, of faith. his life in the gospels was a life of faith.
 every time he encountered an obstacle he cut a way of faith. now, as the author of faith
 he can transfuse and infuse us with the faith he has cut.
+
+> as the law of life works within us to bring about the expression and testimony of God, the first issue of its working is our believing. the most believing person is the one in whom the law of life has worked the most. 
