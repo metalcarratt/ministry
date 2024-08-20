@@ -4,3 +4,5 @@ the holy of holies increases in size.
 
 1 cor 15:10 "not I but the grace of god" with gal 2:20, "not I but christ lives in me"
 shows that grace is a person, christ
+
+to fall from grace is to be severed from christ.
