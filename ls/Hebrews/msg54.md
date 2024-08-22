@@ -1,1 +1,1 @@
-> the focal point of the book of hebrews is to bring us into the holy nature of God. 
+> the focal point of the book of hebrews is to bring us into the holy nature of God. if we do not cooperate with God on this, we shall break his administration. to break God's administration is a governmental matter. breaking God's law is not as serious as breaking his government. God has revealed if we do not cooperate with him in his administrative economy but rather break his government, he will punish us. 
