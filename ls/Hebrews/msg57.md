@@ -8,3 +8,5 @@ religion is in our blood. when the serpent deceived eve the first thing he did w
 to talk about God. then he told her she could know good and evil. that is religion.
 
 to go unto Jesus outside the camp is the pathway of the cross.
+
+whenever we are in our divisive or religious soul we are "camping". the more we enter within the veil the more we will begin to hate our camping religious self.
