@@ -6,3 +6,5 @@ more we enter the veil the less we will be in religion.
 
 religion is in our blood. when the serpent deceived eve the first thing he did was
 to talk about God. then he told her she could know good and evil. that is religion.
+
+to go unto Jesus outside the camp is the pathway of the cross.
