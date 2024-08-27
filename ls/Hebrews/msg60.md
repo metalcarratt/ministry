@@ -5,3 +5,5 @@ from the shwobread table. only those at the feasts could enjoy the portion broug
 in the same way, only the high priest in the holy of holies could enjoy the hidden manna.
 in rev it was the overcomers in the church in pergamos who could eat the hidden manna.
 how close we are to God dictates what portion of him we can enjoy as our food.
+
+those is Christianity can enjoy the open manna. when we are enjoying the world or arguing with our wife we may experience the lords rebuking. this is also open manna. but to enjoy the hidden manna we have to be separated from all things other than God. in theholy of holies there is no outward work to do. we can only minister to the lord. there may be much persecution outwardly, but we enjoy a hidden supply of the Lord.
