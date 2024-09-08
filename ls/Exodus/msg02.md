@@ -8,3 +8,5 @@ the slavery in Egypt came about from the need to earn a living. the pursuit of e
 the world usurpation gods people from fulfilling his purpose. exodus 1:7 says they grew strong exceedingly, probably indicating them becoming rich.
 
 v10 Pharoah said, "Let us deal wisely with them." we do not realise how wise Satan is in usurping us to frustrate gods purpose.
+
+Pharoah slayed the male lifebut kept the female life. in principle the male life is for gods purpose while the female life for pleasure. we all have both types of lives. we slay the life for gods purpose by not coming to the meetings and keep the life for pleasure by pursuing worldly enjoyments.
