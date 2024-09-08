@@ -10,3 +10,5 @@ the world usurpation gods people from fulfilling his purpose. exodus 1:7 says th
 v10 Pharoah said, "Let us deal wisely with them." we do not realise how wise Satan is in usurping us to frustrate gods purpose.
 
 Pharoah slayed the male lifebut kept the female life. in principle the male life is for gods purpose while the female life for pleasure. we all have both types of lives. we slay the life for gods purpose by not coming to the meetings and keep the life for pleasure by pursuing worldly enjoyments. another example is to gossip instead of pray.
+
+however God also used the midwives, the female life, to protect the life for gods purpose. Satan used the female life to corrupt, but he also uses the female life to recover. eve was an example of corruption where as Mary is an example of recovery. whenever the situation is high Satan will try to use the female life to bring in corruption, but when the situation is low God will shame Satan by using the female life to rescue the situation.
