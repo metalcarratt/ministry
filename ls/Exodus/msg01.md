@@ -4,4 +4,4 @@ exodus also shows us how God cares for the needs of his people, through the mann
 
 the glory of God is unique to exodus, filling the tabernacle.
 
-even with the fall, while Genesis showed a coming out of idolatrous babylon, exodus shows a coming out of worldy Egypt with all its pleasures and fleshly enjoyment.
+even with the fall, while Genesis showed a coming out of idolatrous babylon, exodus shows a coming out of worldy Egypt with all its pleasures and fleshly enjoyment, and the accompanying slavery and bondage.
