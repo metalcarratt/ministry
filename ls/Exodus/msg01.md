@@ -1,1 +1,1 @@
-..
+a different side to the experience of a believer that in Genesis. exodus shows us a picture of redemption which Genesis does not. this is the passover lamb. even the way the lamb was killed is a picture of the cross, as the lamb was attached to two crossed wooden bars and then slain.
