@@ -8,7 +8,7 @@ Every member of the Body has ministry
 You have a portion of Christ unique to you, that on one else has. The only way we can know this portion of Christ is from you,
 speaking and ministering. This portion needs to be advanced so you fully complete it.
 
-### C. 2 Cor. 2:6
+### C. 2 Cor. 3:6
 ### 2. constituted with the Triune God
 This past year, what has the Triune God been doing to constitute Himself into you? Your being is the ministry. The constitution
 in our being brings forth our ministry.
