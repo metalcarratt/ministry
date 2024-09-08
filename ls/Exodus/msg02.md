@@ -2,3 +2,5 @@ genesis ends with the death of joseph and exodus is a continuation of genesis, s
 that gods people were in death. although they were in death they also being killed
 each day. the world brings in slavery and death. people think the world is advancing but
 actually there is more spiritual slavery and death today than ever before. while genesis ends with death exodus ends with the ark of the tabernacle filled with glory.
+
+the slavery in Egypt came about from the need to earn a living. the pursuit of entertainment and higher education is also to secure a better living.
