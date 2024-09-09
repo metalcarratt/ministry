@@ -9,3 +9,5 @@ the focus in ch2 is on the female life:
 - pharoahs daughter rescued Moses, charge his mother to nurse him, made him her son, and named him.
 
 > during critical times, the only life that can be used by God is the female life that stands with God and is dependant on Him.
+>
+> we are living in a critical time, a time when the female life is urgently needed. anyone who presumes to be a male will become a pharoah. all of us, including the brothers, need to be females. in a critical time such as now, the male life that is independent of god is not useful. only the female life, the life that depends on God, is prevailing. if we see this, we shall have agreat appreciation for the female life, the life that is wholly dependant on God.
