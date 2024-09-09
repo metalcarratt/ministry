@@ -16,3 +16,8 @@ Independence is rebellion to God.
 life makes us dependant but knowledge makes us independant.
 
 > God desires that we choose life instead of knowledge.
+
+at 40 Moses acted as an independant male, but at 80 he was dependant on God. only once, when he struck the rock twice did he act independant of god and because of that he did not enter the good land. Moses never considered himself the leader. when the children of israel rebelled against him he did not consider that rebellion against himself but rebellion against God. 
+
+> readers of the bible usually regard Moses as the leader of the children of israel. Moses, however, did not have this concept about himself; he never assumed a position as the leader. when the children of israel rebelled against him, he considered it rebellion against God, not against himself. Moses simply went to the lord and presented the problems to him. in doing so, Moses honored the lord as the head, as the unique male.
+
