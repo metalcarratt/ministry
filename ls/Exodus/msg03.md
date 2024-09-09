@@ -7,3 +7,5 @@ the focus in ch2 is on the female life:
 - Moses sister watched overhim and established the connection with pharoahs daughter
 - the female slave of pharoahs daughter fetched the ark holding Moses
 - pharoahs daughter rescued Moses, charge his mother to nurse him, made him her son, and named him.
+
+> during critical times, the only life that can be used by God is the female life that stands with God and is dependant on Him.
