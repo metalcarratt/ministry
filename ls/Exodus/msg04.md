@@ -21,3 +21,5 @@ at 40 Moses acted as an independant male, but at 80 he was dependant on God. onl
 
 > readers of the bible usually regard Moses as the leader of the children of israel. Moses, however, did not have this concept about himself; he never assumed a position as the leader. when the children of israel rebelled against him, he considered it rebellion against God, not against himself. Moses simply went to the lord and presented the problems to him. in doing so, Moses honored the lord as the head, as the unique male.
 
+> if we all have a healthy fear of independence, there will be no problems in the church life. furthermore, there will be no problems among married couples. all problems in the church life, in married life, and among the saints come from one source, and that source is independence from God.
+
