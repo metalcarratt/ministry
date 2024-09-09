@@ -10,3 +10,9 @@ being the head of his disciples, but taking God as his head andnkt daring to do
 anything apart from God.
 
 > man should not be a male but a "female", one who lives a life of dependence on God. only such a "female" life is useful to God. 
+
+Independence is rebellion to God.
+
+life makes us dependant but knowledge makes us independant.
+
+> God desires that we choose life instead of knowledge.
