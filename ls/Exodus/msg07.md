@@ -7,3 +7,5 @@ connection between Gen 3 and exodus 3. both have thorns and fire. in gen 3 the t
 > praise the lord that the excluding flame of Genesis 3 has become the visiting and indwelling flame of exodus 3! now the once-cursed thorn can become gods dwelling place.
 
 we must have a twofold consciousness - that gods glory is dwelling in us, and that we are a thornbush.
+
+as a corporate thornbush God did not behold iniquity in Israel. this is proven by Balaam's prophecy, which blessed Israel. that was God's sight. if we think we can see better than God, and behold iniquity in the church, the. we will place ourselves under a curse. but if we speak as God's speaks, that the church is redeemed, sanctified and transformed, we will be blessed.
