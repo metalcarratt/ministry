@@ -6,3 +6,4 @@ connection between Gen 3 and exodus 3. both have thorns and fire. in gen 3 the t
 
 > praise the lord that the excluding flame of Genesis 3 has become the visiting and indwelling flame of exodus 3! now the once-cursed thorn can become gods dwelling place.
 
+we must have a twofold consciousness - that gods glory is dwelling in us, and that we are a thornbush.
