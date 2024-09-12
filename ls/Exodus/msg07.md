@@ -11,3 +11,5 @@ we must have a twofold consciousness - that gods glory is dwelling in us, and th
 as a corporate thornbush God did not behold iniquity in Israel. this is proven by Balaam's prophecy, which blessed Israel. that was God's sight. if we think we can see better than God, and behold iniquity in the church, the. we will place ourselves under a curse. but if we speak as God's speaks, that the church is redeemed, sanctified and transformed, we will be blessed.
 
 when the lord talked to the caduceus about resurrection he referred them to the section concerning the bush. this shows that the one burning in the bush, the God of Abraham, Isaac and Jacob, is the God of resurrection.
+
+> we all need to say in faith that we are in resurrection. the more we speak this in faith, the more it will become our experience.
