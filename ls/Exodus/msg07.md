@@ -9,3 +9,5 @@ connection between Gen 3 and exodus 3. both have thorns and fire. in gen 3 the t
 we must have a twofold consciousness - that gods glory is dwelling in us, and that we are a thornbush.
 
 as a corporate thornbush God did not behold iniquity in Israel. this is proven by Balaam's prophecy, which blessed Israel. that was God's sight. if we think we can see better than God, and behold iniquity in the church, the. we will place ourselves under a curse. but if we speak as God's speaks, that the church is redeemed, sanctified and transformed, we will be blessed.
+
+when the lord talked to the caduceus about resurrection he referred them to the section concerning the bush. this shows that the one burning in the bush, the God of Abraham, Isaac and Jacob, is the God of resurrection.
