@@ -8,3 +8,6 @@ three of four aspects of gods calling:
   - rod become a serpent showing anything we depend on apart from the lord is a serpent in disguise
   - hand becoming leprous showing in ourselves we are nothing but sin
   - water becoming blood showing the world is death
+- matching and cutting
+  - brothers matching, we need to be balanced and adjusted by being with others. let others do what we can do
+  - wife's cutting, we need to be cut, circumcised, so that our flesh and natural life are no longer expressed.
