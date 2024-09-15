@@ -4,4 +4,7 @@ three of four aspects of gods calling:
 - knowing God
   - as the one who is. no matter how much changes, god always is and always will be. even if we don't experience miracles or encounter some loss, god still is eternally. this should be a great encouragement to us
   - as the god of resurrection.
-
+- three signs
+  - rod become a serpent showing anything we depend on apart from the lord is a serpent in disguise
+  - hand becoming leprous showing in ourselves we are nothing but sin
+  - water becoming blood showing the world is death
