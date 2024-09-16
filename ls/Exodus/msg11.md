@@ -12,3 +12,5 @@ gods purpose in calling us is to:
 - enter the good land and build the temple
 
 our greatest shortage is living christ. we focus on many things such asbeing victorious or spiritual but not living christ. for a christian to not live christ is a sin. we may ask how do we live christ? because we pursue other things such as being victorious we find it hard to live christ.
+
+the tribes of Canaan are a type of the evil principalities in the air which we must defeat in order to enjoy christ as the good land.
