@@ -2,4 +2,4 @@
 
 it is somewhat easy to preach to people but not easy to deliver them from the world. as gods called ones one aspect of our purpose is to bring others out of the tyranny and usurpation of the world.
 
-> we must prat the our ministry of the word will have impact. we do not want to give mere knowledge to people. rather, we desire that something in our preaching will touch their hearts and cause then to leave the world and journey into the wilderness in resurrection.
+> we must pray that our ministry of the word will have impact. we do not want to give mere knowledge to people. rather, we desire that something in our preaching will touch their hearts and cause then to leave the world and journey into the wilderness in resurrection.
