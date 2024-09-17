@@ -10,6 +10,8 @@ at the mountain the children of israel received the revelation of the law and th
 they built the tabernacle, which signifies the movable church life. however the mountain
 is not the goal - only the good land can be the goal.
 
+
+according to the picture we do not begin to enjoy the riches of the good land until the self and flesh have been dealt with.
 the church is built of living stones and only the temple was built of stones, showing
 we must be in the good land to build the church as the house of god. the good land is the
 all inclusive christ as the spirit. the promise to Abraham was not the manna or the cleft
