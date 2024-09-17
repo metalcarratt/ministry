@@ -24,3 +24,4 @@ according to the picture we do not begin to enjoy the riches of the good land un
 
 > within us we are troubled by the self and the flesh, and above us, in the air, there are the evil powers of darkness. when we bury the self and circumcise the flesh, the powers of darkness in the air will be exposed. the self and the flesh help the evil powers. actually, if we are still in the self and the flesh, the principalities and powers need not do anything to hinder us, for we are already frustrated by the self and the flesh. however, as soon as we deal with the self and the flesh, the powers of darkness will come forth to war against us. then we must learn to fight the spiritual warfare. the spiritual warfare is fought in the good land with the support of the rich produce of christ.
 
+the unique sin of a believer is to not live christ.
