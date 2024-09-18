@@ -10,4 +10,4 @@ pharoah increased their work, called them idle, and accused them of listening to
 
 the things necessary need to be under a divine limitation. we need a place to live and we need to keep it clean, but these things should not keep us from feasting to the lord and listening to his word.
 
-> out living and existence depend on the provision from the heavenly source, not the supply from the world. for this we need the vision, and we need the exercise of faith. moses was a man of great faith to lead two million people out of Egypt into the wilderness, where there was no earthly supply for their human existence.
+> our living and existence depend on the provision from the heavenly source, not the supply from the world. for this we need the vision, and we need the exercise of faith. moses was a man of great faith to lead two million people out of Egypt into the wilderness, where there was no earthly supply for their human existence.
