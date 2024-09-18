@@ -7,3 +7,5 @@ Isaac and jacob.
 because God is self existing and ever existing he is able to fulfill his promise. Abraham has still not personally received the promise of the good land, but because God is the god of resurrection, and because he is the self existing and ever existing one, he is able to fulfill it.
 
 the name Jesus means jehovah the savior. he came to save as the self existing and ever existing one. he came not to promise but to fulfill.
+
+> when they are in need, many Christians pray to the lord as the sufficient one. but have you ever heard of Christians praising the lord for his eternal existence? the lord is longing for some to proclaim, "Lord, you are!" we need to.be those who praise the lord in this way.
