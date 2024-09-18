@@ -5,3 +5,5 @@ the feasting is a sacrifice. the children of israel ate what they had sacrificed
 a pharoah is one who keeps people from feasting and enjoying the lord. Satan is a pharoah but we may also be a pharoah to one another and even to ourselves.
 
 to have a feast requires a large number of people to come together. our life of feasting in the church life requires we come together with many others.
+
+pharoah increased their work, called them idle, and accused them of listening to "vain" words. in the world people are working for their existence but neglecting the purpose of their existence. but while we need to exist we need a certain "idleness" to feast before the Lord. when need to come to the church meetings to be "idle" and listen to the "vain" words of the Lord.
