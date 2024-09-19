@@ -18,3 +18,5 @@ of moses. he covered eight points:
 Exo. 6:6-7
 
 the lord has promised that he will build his church. we should not believe in any negative situation but in the lords promise and in his word of assurance.
+
+moses complained to God that his words had no power before pharoah or the elders of Israel. 
