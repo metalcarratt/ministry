@@ -20,3 +20,6 @@ Exo. 6:6-7
 the lord has promised that he will build his church. we should not believe in any negative situation but in the lords promise and in his word of assurance.
 
 moses complained to God that his words had no power before pharoah or the elders of Israel. 
+
+> no doubt moses expected God to use his lips to speak a mighty word to pharoah in a miraculous way. instead, the word out of moses' mouth was common, not at all extraordinary. but what eventually comes out of such a common speaking is the lords doing, not man. the outcome depends on the fact that we are sent by the lord and commissioned by him and that we represent him--not on our effort, our skill, or how good a job we do. the earthen vessel is still earthen, but it contains a treasure. the thorn-bush is still a thorn-bush, but the holy fire is burning upon it. the thorn-bush should not expect to change, nor should it expect the glory to come to it. the glory must always go to God.
+
