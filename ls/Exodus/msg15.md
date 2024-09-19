@@ -16,3 +16,5 @@ of moses. he covered eight points:
 > And I will take you to Myself as My people, and I will be your God; and you shall know that I am Jehovah your God, the One who brought you out from under the burdens of the Egyptians.
 
 Exo. 6:6-7
+
+the lord has promised that he will build his church. we should not believe in any negative situation but in the lords promise and in his word of assurance.
