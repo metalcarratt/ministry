@@ -1,0 +1,9 @@
+the reason god is able to withhold his judgement upon creation is because of the
+redemption of christ. at the time of Adam, Adam as the head of creation rebelled against
+God. at that point the universe should have collapsed since God cannot tolerate
+rebellion. however he chose to view the whole old creation under the redemption of
+christ. the redemption of christ occurred before the foundation of the world in God's reckoning.
+thus he was able to spare the old creation for the sake of his purpose. not only
+believers but unbelievers today enjoy the benefit of christs redemption because it
+has enabled God to postpone his judgment upon the earth while he seeks to bring many
+to believe into him.
