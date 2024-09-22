@@ -12,3 +12,4 @@ if the earth and water are under christs redemption to us, then it will produce 
 
 > I can testify from a pure conscience that the water I enjoy produces fish and not frogs. furthermore, for me the earth produces corn, wheat and vegetables; it does not produce lice. however, if in your experience the earth is not under Christ's redemption, the dust of the earth will become lice.
 
+the swarms of flies in the air signifies the moral atmosphere in the world, which is polluted, filled with all kinds of unclean and evil things.
