@@ -7,3 +7,8 @@ thus he was able to spare the old creation for the sake of his purpose. not only
 believers but unbelievers today enjoy the benefit of christs redemption because it
 has enabled God to postpone his judgment upon the earth while he seeks to bring many
 to believe into him.
+
+if the earth and water are under christs redemption to us, then it will produce crops and fish, but if it is not it will produce lice, frogs and blood.
+
+> I can testify from a pure conscience that the water I enjoy produces fish and not frogs. furthermore, for me the earth produces corn, wheat and vegetables; it does not produce lice. however, if in your experience the earth is not under Christ's redemption, the dust of the earth will become lice.
+
