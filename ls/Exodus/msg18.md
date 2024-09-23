@@ -17,3 +17,5 @@ the swarms of flies in the air signifies the moral atmosphere in the world, whic
 the pestilence was upon the unclean animals (camels, horses, asses) used for transport, and upon the clean animals (ox, sheep) used for food. this shows that transport and food were judged.
 
 the plagues enlightened gods people to the true nature of life in Egypt and also motivated them to get out of Egypt and go into the wilderness.
+
+the ashes becoming boils signifies how even the remainder of things dealt with can be a problem and need to be dealt with. when speaking about our past experiences, for example, we need to be under the covering of the redemption of Christ so that we don't spread asked that will cause boils to the saints.
