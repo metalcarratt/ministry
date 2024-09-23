@@ -7,3 +7,4 @@ his people, and the egyptians themselves, to clearly see what life is like in th
 > the nature, significance, and result of the life of the world and God's attitude toward
 > such a life. only by receiving such a revelation can we truly hate the worldly life.
 
+it is easy to hate sin but not the world. sin is against gods righteousness, but the world is against his holiness, which is higher than his righteousness. thus loving the world is worse than sin.
