@@ -19,3 +19,5 @@ the pestilence was upon the unclean animals (camels, horses, asses) used for tra
 the plagues enlightened gods people to the true nature of life in Egypt and also motivated them to get out of Egypt and go into the wilderness.
 
 the ashes becoming boils signifies how even the remainder of things dealt with can be a problem and need to be dealt with. when speaking about our past experiences, for example, we need to be under the covering of the redemption of Christ so that we don't spread asked that will cause boils to the saints.
+
+> we need to be deeply impressed with the fact that even the remains of sinful things must be judged. in the eys of God nothing of Egypt is good. everything related to Egyptian living, to the living of the world, must be exposed and judged thoroughly.
