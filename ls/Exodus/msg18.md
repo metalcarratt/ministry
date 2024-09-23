@@ -13,3 +13,7 @@ if the earth and water are under christs redemption to us, then it will produce 
 > I can testify from a pure conscience that the water I enjoy produces fish and not frogs. furthermore, for me the earth produces corn, wheat and vegetables; it does not produce lice. however, if in your experience the earth is not under Christ's redemption, the dust of the earth will become lice.
 
 the swarms of flies in the air signifies the moral atmosphere in the world, which is polluted, filled with all kinds of unclean and evil things.
+
+the pestilence was upon the unclean animals (camels, horses, asses) used for transport, and upon the clean animals (ox, sheep) used for food. this shows that transport and food were judged.
+
+the plagues enlightened gods people to the true nature of life in Egypt and also motivated them to get out of Egypt and go into the wilderness.
