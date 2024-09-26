@@ -12,5 +12,5 @@ have lost this opportunity.
 >
 > it is of the lords mercy that we can attend the church meetings. many of us can testify that the happiest nights of the week are the meeting nights. if there were no meetings to attend, what would we do with all our time? in our free time we would be miserable. praise the lord that, according to his sovereign mercy, we can come together in the meetings!
 >
-> the more we recognise gods soveriegnty, the more grateful we shall be for his mercy. hallelujah, gods mercy has been sovereignly bestowed upon us! by his mercy, we are not stubborn like pharoah! sometimes we may be stubborn, but in the lords sovereign grace, we can be stubborn only for a short while. then we repent, either to the lord or one we have wronged. this desire to repent is the lords mercy to us.
+> the more we recognise gods sovereignty, the more grateful we shall be for his mercy. hallelujah, gods mercy has been sovereignly bestowed upon us! by his mercy, we are not stubborn like pharoah! sometimes we may be stubborn, but in the lords sovereign grace, we can be stubborn only for a short while. then we repent, either to the lord or one we have wronged. this desire to repent is the lords mercy to us.
 
