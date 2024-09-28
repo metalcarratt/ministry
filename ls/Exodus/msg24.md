@@ -7,3 +7,5 @@ important to see _how_ to eat the passover. the children of israel ate it in has
 this is because they were gods army, ready to leave at any time. we should not think
 after being saved we will be carried away to heaven in a palanquin. rather we are
 formed to be gods army.
+
+loins girded, shoes on feet, staff in hand, eaten in haste.
