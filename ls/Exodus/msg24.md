@@ -9,3 +9,5 @@ after being saved we will be carried away to heaven in a palanquin. rather we ar
 formed to be gods army.
 
 loins girded, shoes on feet, staff in hand, eaten in haste.
+
+remain in the house. the way to experience redemption is to be in the house (to be one with christ). we get into the house through the blood. but we need to remain in the house. the reason we don't agree with many teachings in Christianity is that they encourage us to leave the house. but everything is in the house. we should stay in the abiding by remaining in the house.
