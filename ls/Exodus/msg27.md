@@ -6,3 +6,4 @@ four additional matters related to the exodus of gods people from egypt:
   - in resurrection life. gods guidance only comes to bones in resurrection. many Christians are seeking gods will, leading and guidance, but do not have it because they are not bones moving in the power of resurrection.
   - the children of israel had not only the Lord's command but also his leading and guidance by the pillar of cloud and fire. if he asks us to do something we must have his leading and guidance also, not only his command.
   - prerequisites: sanctification > new, sinless life > resurrection > leading and guidance.
+  - God lead the children of israel the long way so that they would not return to Egypt when they saw war. often gods leading is in a round about way to prevent us from going back to the world.
