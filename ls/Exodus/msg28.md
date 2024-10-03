@@ -3,3 +3,5 @@ we would give up after a few times if our gospel contact was stubborn, but we ne
 be patient and persevering.
 
 God hardened pharaohs heart. many times he allows Satan to act to use him. we can see this in job, where he even has access to heaven.
+
+whether the pillar is light to us or darkness depends on whether we are following gods people or attacking them.
