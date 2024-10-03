@@ -7,3 +7,4 @@ four additional matters related to the exodus of gods people from egypt:
   - the children of israel had not only the Lord's command but also his leading and guidance by the pillar of cloud and fire. if he asks us to do something we must have his leading and guidance also, not only his command.
   - prerequisites: sanctification > new, sinless life > resurrection > leading and guidance.
   - God lead the children of israel the long way so that they would not return to Egypt when they saw war. often gods leading is in a round about way to prevent us from going back to the world.
+  - clouds signifies the spirit, fire signifies the word. the Lord, the spirit and the word are all one for our leading. when we are clear (in the day) the spirit leads. when we are not clear (in the night) the word leads and makes our night day and then becomes the spirit.
