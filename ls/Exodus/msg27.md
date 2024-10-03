@@ -4,3 +4,4 @@ four additional matters related to the exodus of gods people from egypt:
 - Joseph's bones brought into the good land - bone signifies the unbreakable resurrection life. in God's eyes, Egypt was a cemetery where all his people were bones buried. the exodus was a bringing of his people into resurrection. the exodus is made in resurrection life. no one can come out of the world without being enlivened by the resurrection life. only when our dry bones are made alive by the resurrection life can we come out of the world.
 - gods leading
   - in resurrection life. gods guidance only comes to bones in resurrection. many Christians are seeking gods will, leading and guidance, but do not have it because they are not bones moving in the power of resurrection.
+  - the children of israel had not only the Lord's command but also his leading and guidance by the pillar of cloud and fire. if he asks us to do something we must have his leading and guidance also, not only his command.
