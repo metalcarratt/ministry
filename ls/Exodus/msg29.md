@@ -8,3 +8,4 @@ the song of moses shows that baptism brings God's people to defeat the tribes in
 
 > gods goal in bringing the children of israel through the red sea was to have a dwelling place. before the tabernacle was erected, god did not have a dwelling place on earth. he could have such a dwelling place only after he had secured a people who had been redeemed, who had passed through the red sea, and who had entered into a separated realm where they were free from all bondage.
 
+> mosesknew that gods goal was not merely to save his people out of tyranny, he knew that it was tk have a people set free from the world and brought into a realm of freedom for the building of his dwelling place. because moses knew gods heart, gods will, and gods goal, he could truly be called a man of god. 
