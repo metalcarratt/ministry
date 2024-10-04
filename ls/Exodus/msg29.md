@@ -5,3 +5,6 @@ baptism requires faith. the children of israel had no faith when pharaohs army w
 both Noah and the children of israel were "saved through water". the water saved them from the world and brought them to a place with no bondage or slavery where gods dwelling place could be built.
 
 the song of moses shows that baptism brings God's people to defeat the tribes in Canaan, to the holy mountain of God, to his habitation (the tabernacle and temple) and to the kingdom of God. this shows that gods purpose can only be accomplished when he has a people who have been redeemed, passed through the red sea, and brought to a place without any bondage.
+
+> gods goal in bringing the children of israel through the red sea was to have a dwelling place. before the tabernacle was erected, god did not have a dwelling place on earth. he could have such a dwelling place only after he had secured a people who had been redeemed, who had passed through the red sea, and who had entered into a separated realm where they were free from all bondage.
+
