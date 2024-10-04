@@ -1,0 +1,1 @@
+according to 1 cor 10:2, the children of israel were baptised unto Moses when they passed through the red sea. before that they did not follow moses absolutely but after that they feared jehovah and his servant. Moses is a type of christ as our leader. thus when we are baptised we are baptised unto christ.
