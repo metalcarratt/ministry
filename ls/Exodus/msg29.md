@@ -1,3 +1,5 @@
 according to 1 cor 10:2, the children of israel were baptised unto Moses when they passed through the red sea. before that they did not follow moses absolutely but after that they feared jehovah and his servant. Moses is a type of christ as our leader. thus when we are baptised we are baptised unto christ. this verse also says they were baptised in the cloud and in the sea. the cloud signifies the spirit and the sea signifies the death of christ.
 
 baptism requires faith. the children of israel had no faith when pharaohs army was behind them and the red sea was before them, but when god spoke the word to Moses to put his staff our over the sea they had faith. when god speaks we have faith.
+
+both Noah and the children of israel were "saved through water". the water saved them from the world and brought them to a place with no bondage or slavery where gods dwelling place could be built.
