@@ -10,3 +10,6 @@ resurrection.
 at marah the bitter waters were made sweet by the cross of christ. when we are in resurrection the water of the world can no longer satisfy us. only when we enjoy the cross can we be satisfied. not only that, he heals us. our mind, emotion and will and even our spirit is sick and needs healing. the cross not only makes our bitter situation sweet but heals us.
 
 this was also a test. nothing exposes and tests us like the cross, exposing our motives, intentions and desires.
+
+> if we would experience his healing, we need to be identified with his crucifixion. suppose, for example, that you have stomach trouble. to be healed of this illness, you would need your stomach to become identified with the cross of christ. if your stomach is identified with the christs crucifixion, the crucified christ will become your healer. your stomach ailment may be caused by living according to the self. in your eating you need the dealing of the cross. the cross must deal with the self in relation to eating.
+
