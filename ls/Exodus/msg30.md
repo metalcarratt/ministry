@@ -13,3 +13,5 @@ this was also a test. nothing exposes and tests us like the cross, exposing our 
 
 > if we would experience his healing, we need to be identified with his crucifixion. suppose, for example, that you have stomach trouble. to be healed of this illness, you would need your stomach to become identified with the cross of christ. if your stomach is identified with christ's crucifixion, the crucified christ will become your healer. your stomach ailment may be caused by living according to the self. in your eating you need the dealing of the cross. the cross must deal with the self in relation to eating.
 
+> if your mind is bitter, cast the tree into your mind. if your attitude toward someone or something is bitter, cast the tree into your attitude. do this with every part of your being, and little by little you will be healed. ... in this way daily and even hourly the lord Jesus becomes our healer.
+
