@@ -15,3 +15,4 @@ this was also a test. nothing exposes and tests us like the cross, exposing our 
 
 > if your mind is bitter, cast the tree into your mind. if your attitude toward someone or something is bitter, cast the tree into your attitude. do this with every part of your being, and little by little you will be healed. ... in this way daily and even hourly the lord Jesus becomes our healer.
 
+> we must allow the cross of christ to test our inward parts. as the cross is applied to our being, our inward parts will be healed and subdued. then those parts will listen to the voice of the lord, obey his word, and keep his statutes. as a result, you will be one with the Lord in a practical way. May we all experience this healing day by day.
