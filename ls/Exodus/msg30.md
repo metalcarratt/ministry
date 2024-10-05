@@ -6,3 +6,5 @@ three days) to signify that after baptism we are in resurrection (3=resurrection
 the wilderness is a type of resurrection because, in the world's eyes, after we receive
 the lord we enter a wilderness without garlic and leeks. but in our eyes it is a realm of
 resurrection.
+
+at marah the bitter waters were made sweet by the cross of christ. when we are in resurrection the water of the world can no longer satisfy us. only when we enjoy the cross can we be satisfied. not only that, he heals us. our mind, emotion and will and even our spirit is sick and needs healing. the cross not only makes our bitter situation sweet but heals us.
