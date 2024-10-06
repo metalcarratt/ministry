@@ -15,4 +15,4 @@ Two other case of 70+12, exo 24, 70 elders and 12 tribes. Luke 9+10, 12 apostles
 
 Here we see a picture of resurrection: life flowing in a complete and perfect way, and life growing (flourishing, rejoicing in satisfaction, victorious over tribulation) to carry out gods ministry in both time and eternity.
 
-After this gods people encamped as an army. In chapter 17 they fought the battle to get to mount Sinai. At the red sea god fought for them against Egypt, but after experiencing resurrection, marah and elim, they god didn't need to fight for them because they themselves could fight through the flowing and growing.
+After this gods people encamped as an army. In chapter 17 they fought the battle to get to mount Sinai. At the red sea god fought for them against Egypt, but after experiencing resurrection, marah and elim, they didn't need God to fight for them because they themselves could fight through the flowing and growing.
