@@ -5,7 +5,7 @@ twelve springs flowing (downward) and seventy palm trees growing (upward). the s
 
 marah is the experience of the cross and elim is the experience of resurrection. ones like madam guyon and brother Lawrence experienced marah, but we need to go on to elim. at marah there is a single tree with sweet water, but at elim there are seventy palm trees with flowing water. this is to water gods plantation.
 
-- River flowing, palm trees growing (life flowing and growing)
+River flowing, palm trees growing (life flowing and growing)
 - 12=4×3(god mingled with man)=completeness in eternity
 - 7=6+1(creator added to man)
 - 7=4+3(triune god added to creation)=completeness in time
