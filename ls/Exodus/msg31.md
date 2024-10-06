@@ -7,9 +7,9 @@ marah is the experience of the cross and elim is the experience of resurrection.
 
 - River flowing, palm trees growing (life flowing and growing)
 - 12=4×3(god mingled with man)=completeness in eternity
-7=6+1(creator added to man)
-7=4+3(triune god added to creation)=completeness in time
-10=fulness (two hands)
+- 7=6+1(creator added to man)
+- 7=4+3(triune god added to creation)=completeness in time
+- 10=fulness (two hands)
 
 Two other case of 70+12, exo 24, 70 elders and 12 tribes. Luke 9+10, 12 apostles and 70 others. Both are related to the carrying out of the ministry. Only life flowing and growing can fulfill the ministry.
 
