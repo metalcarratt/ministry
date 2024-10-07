@@ -1,3 +1,5 @@
 > in God's salvation two matters are crucial. the first is that God wants to be everything to his chosen people. he wants to work himself into those whom he has predestinated unto himself. second, since god wants to be everything to us, he does not want us to do anything. rather, he wants to do everything for us.
 >
 > as we apply these two matters to the book of exodus, we see that it was god himself who dealt with pharaoh and the egyptians. God did not ask the children of israel to fight in order to be released from Egyptian tyranny. God did everything to bring about the total defeat of the Egyptians. when moses confronted pharaoh, all he had was a rod, a dead stick. it was god who did everything for his people.
+
+manna was a unique miracle because all the other acts of God made use of the existing natural environment, but manna was something completely new, something heavenly. for forty years gods people ate manna. this changed their constitution. it show what God wants is to change our constitution to something heavenly. by bringing them out of Egypt to the wilderness he changed their location. now by giving them manna he began to change their constitution.
