@@ -1,23 +1,23 @@
 # Lifestudy of Exodus
 Intro:
-- [Message 01](msg01.md)
+- [Message 01](msg01.md) - The experience of a believer: redemption, being cared for, corporate expression
 
 God using the female life:
-- [Message 02](msg02.md)
-- [Message 03](msg03.md)
-- [Message 04](msg04.md)
+- [Message 02](msg02.md) - The midwives vs Pharaoh
+- [Message 03](msg03.md) - The seven types of positive female life in chapter 2
+- [Message 04](msg04.md) - The female life is a life of dependence on God
 
 God's calling:
-- [Message 05](msg05.md)
-- [Message 06](msg06.md)
-- [Message 07](msg07.md)
-- [Message 08](msg08.md)
-- [Message 09](msg09.md)
-- [Message 10](msg10.md)
+- [Message 05](msg05.md) - Waiting till Moses' strength was used up, and the Calling One
+- [Message 06](msg06.md) - The thornbush showing God wants to work through us, not us working
+- [Message 07](msg07.md) - The church is a corporate thornbush
+- [Message 08](msg08.md) - Three signs for the called one - a serpentine rod, a leprous heart and water being blood
+- [Message 09](msg09.md) - Moses matched by Aaron and cut by Zipporah
+- [Message 10](msg10.md) - Five aspects of God's calling (God dwelling in thornbush, knowing God, three signs, matching and cutting
+- [Message 11](msg11.md) - God's purpose in calling us
+- [Message 12](msg12.md) - Three stations of God's calling (wilderness, mountain, good land)
 
 Dealings with Pharaoh:
-- [Message 11](msg11.md)
-- [Message 12](msg12.md)
 - [Message 13](msg13.md)
 - [Message 14](msg14.md)
 - [Message 15](msg15.md)
