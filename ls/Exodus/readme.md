@@ -3,7 +3,7 @@ Intro:
 - [Message 01](msg01.md) - The experience of a believer: redemption, being cared for, corporate expression
 
 God using the female life:
-- [Message 02](msg02.md) - The midwives vs Pharoah
+- [Message 02](msg02.md) - The midwives vs Pharaoh
 - [Message 03](msg03.md) - The seven types of positive female life in chapter 2
 - [Message 04](msg04.md) - The female life is a life of dependence on God
 
@@ -24,8 +24,8 @@ Dealings with Pharaoh:
 - [Message 16](msg16.md) - Waters turning to blood
 - [Message 17](msg17.md) - Frogs
 - [Message 18](msg18.md) - Lice, flies, pestilence, boils
-- [Message 19](msg19.md) - Pharoah exceptional in resisting God
-- [Message 20](msg20.md) - Pharoah's compromise
+- [Message 19](msg19.md) - Pharaoh exceptional in resisting God
+- [Message 20](msg20.md) - Pharaoh's compromise
 - [Message 21](msg21.md) - Having a soft heart, not a hard heart
 - [Message 22](msg22.md) - God's sovereignty and mercy
 
@@ -37,31 +37,31 @@ Passover:
 Exodus from Egypt:
 - [Message 26](msg26.md) - Exodus from the world
 - [Message 27](msg27.md) - sanctified, month of abib, joseph's bones, God's leading
-- [Message 28](msg28.md) - Pharoah stubborn
+- [Message 28](msg28.md) - Pharaoh stubborn
 
 Baptism in the Red Sea:
-- [Message 29](msg29.md)
+- [Message 29](msg29.md) - Baptism brings God's people into Canaan, the good land
 
 The bitter waters of Marah made sweet:
-- [Message 30](msg30.md)
+- [Message 30](msg30.md) - In resurrection, by the cross of Christ, tested by God
 
 The springs and palm trees and Elim:
-- [Message 31](msg31.md)
+- [Message 31](msg31.md) - Experience of resurrection
 
 The manna (vs the quails):
-- [Message 32](msg32.md)
-- [Message 33](msg33.md)
-- [Message 34](msg34.md)
-- [Message 35](msg35.md)
-- [Message 36](msg36.md)
-- [Message 37](msg37.md)
+- [Message 32](msg32.md) - Dealing with the lust of the flesh
+- [Message 33](msg33.md) - Manna a unique miracle, Our need to have a change in diet
+- [Message 34](msg34.md) - Quails satisfy the flesh and are without restraint, manna is the heaveny supply and is under restriction
+- [Message 35](msg35.md) - Learn to live Christ by eating Him as our food
+- [Message 36](msg36.md) - Details #1 - from heaven, with the dew, in the morning
+- [Message 37](msg37.md) - Details #2 - small, fine, round, white, like frost, solid, like bdellium, like oil, like honey, made into cakes, mysterious
 
 The hidden manna:
-- [Message 38](msg38.md)
-- [Message 39](msg39.md)
+- [Message 38](msg38.md) - The center of our being, kept as a memorial
+- [Message 39](msg39.md) - In the divine nature (golden pot), fulfilling the requirements of the law of life (before the tablets of the testimony)
 
 The water flowing out of the cleft rock:
-- [Message 40](msg40.md)
+- [Message 40](msg40.md) - Crucifixion of Christ, drinking more necessary than eating
 
 Tested by God in a situation of dryness:
 - [Message 41](msg41*.md)
