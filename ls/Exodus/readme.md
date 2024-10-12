@@ -62,6 +62,4 @@ The hidden manna:
 
 The water flowing out of the cleft rock:
 - [Message 40](msg40.md) - Crucifixion of Christ, drinking more necessary than eating
-
-Tested by God in a situation of dryness:
-- [Message 41](msg41*.md)
+- [Message 41](msg41*.md) - Tested by God in a situation of dryness
