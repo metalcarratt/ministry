@@ -3,7 +3,7 @@ Intro:
 - [Message 01](msg01.md) - The experience of a believer: redemption, being cared for, corporate expression
 
 God using the female life:
-- [Message 02](msg02.md) - The midwives vs Pharaoh
+- [Message 02](msg02.md) - The midwives vs Pharoah
 - [Message 03](msg03.md) - The seven types of positive female life in chapter 2
 - [Message 04](msg04.md) - The female life is a life of dependence on God
 
@@ -18,26 +18,26 @@ God's calling:
 - [Message 12](msg12.md) - Three stations of God's calling (wilderness, mountain, good land)
 
 Dealings with Pharaoh:
-- [Message 13](msg13.md)
-- [Message 14](msg14.md)
-- [Message 15](msg15.md)
-- [Message 16](msg16.md)
-- [Message 17](msg17.md)
-- [Message 18](msg18.md)
-- [Message 19](msg19.md)
-- [Message 20](msg20.md)
-- [Message 21](msg21.md)
-- [Message 22](msg22.md)
+- [Message 13](msg13.md) - God called His people to feast, but Pharoah called them idle
+- [Message 14](msg14.md) - God as the self-existing and ever-existing One
+- [Message 15](msg15.md) - God's further training of Moses after his discouragement
+- [Message 16](msg16.md) - Waters turning to blood
+- [Message 17](msg17.md) - Frogs
+- [Message 18](msg18.md) - Lice, flies, pestilence, boils
+- [Message 19](msg19.md) - Pharoah exceptional in resisting God
+- [Message 20](msg20.md) - Pharoah's compromise
+- [Message 21](msg21.md) - Having a soft heart, not a hard heart
+- [Message 22](msg22.md) - God's sovereignty and mercy
 
 Passover:
-- [Message 23](msg23.md)
-- [Message 24](msg24.md)
-- [Message 25](msg25.md)
+- [Message 23](msg23.md) - Christ is our Passover
+- [Message 24](msg24.md) - Redemption of Christ, eating the Passover, remaining in the house
+- [Message 25](msg25.md) - The unleavened bread
 
 Exodus from Egypt:
-- [Message 26](msg26.md)
-- [Message 27](msg27.md)
-- [Message 28](msg28.md)
+- [Message 26](msg26.md) - Exodus from the world
+- [Message 27](msg27.md) - sanctified, month of abib, joseph's bones, God's leading
+- [Message 28](msg28.md) - Pharoah stubborn
 
 Baptism in the Red Sea:
 - [Message 29](msg29.md)
