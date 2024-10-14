@@ -3,3 +3,5 @@ drinking will be nullified. in one sense the flowing is more important than the 
 most Christians either do not drink or do not flow. either way the drinking ceases.
 
 lack of flowing will also cause our thirst to stop. the proper gospel preaching stirs up a thrist within people. a good salesman knows how to make something attractive to people. this is to stir up a thirst.
+
+if the flowing stops the drinking stops. if the drinking stopsthe thirst will stop. then we will have to go through a period of spiritual death before our thirst can be recovered.
