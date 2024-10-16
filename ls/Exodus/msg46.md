@@ -1,0 +1,1 @@
+> whenever we are not satisfied with christ and not supplied by the life-giving spirit, we are subdued under the flesh. but whenever we rise up and enjoy christ as our manna and drink of the life-giving spirit as the living water, we are no longer subdued by the flesh.
