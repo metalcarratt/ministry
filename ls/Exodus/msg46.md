@@ -3,3 +3,7 @@
 > before we began to enjoy christ as our food and the life-giving spirit as our living water, we did not have any consciousness that the flesh was fighting against us. 
 
 the flesh is destructive and warlike. (amalek means warlike). amalek was a son of esau, the older brother of Jacob. this shows how close the flesh is to us, and that it is even the first man, having been born first.
+
+God chose weak men to fight the battle.  but the battle was won by lifting up moses hands. victory depended on God.
+
+the flesh is a hand against the throne of god. it directly opposes the throne of god in our being.
