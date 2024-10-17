@@ -17,3 +17,5 @@ to battle against the flesh we need the intercession of our heavenly high priest
 - thirdly our prayer should be toward the building (hours grandson was given skill in constructing the tabernacle).
 
 if we deal with these three matters we will be able to pray to war against the flesh.
+
+moses also sat on a rock. this rock is our realisation that in ourselves we cannot pray unceasingly, and only the christ in us can do it.
