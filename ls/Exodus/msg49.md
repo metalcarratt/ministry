@@ -4,4 +4,6 @@ kingdom of God (v21)
 
 four words in gal 5:17-25, flesh, cross, spirit, kingdom. we can colour them in our Bible with black (flesh), red (cross), green (spirit, life), yellow (kingdom). if we do this we will have much revelation.
 
+jethro signifies the gentiles who, once the flesh is dealt with and the kingdom of God comes in, turn to the lord. zipporah signifies the church which comes out of the world and is married to the lord.
+
 jethros proposal show that in the kingdom everything should be maintained in a proper order. there should be "captains", ones who remind others of the spirit and the cross, to help maintain the proper order in the church.
