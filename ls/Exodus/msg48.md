@@ -10,3 +10,5 @@ Ex 17:16
 this rebellious attitude is of satan, but often satan comes to us cloaked in something else. often our flesh serves as a cloak for satan.
 
 just as Saul made excuses for sparing the best of amalek so we make excuses for sparing the good aspects of our flesh. but if we do not utterly deal with our flesh the kingdom will not be able to come in.
+
+> sparing the good aspects of the flesh causes a definite shortage of spiritual authority. many believers lack the weight of spiritual authority simply because they have not utterly dealt with their peculiarities. culture, opinions ,peculiarities, and habits are all hiding places of the flesh, and these damage our spiritual life. because we spare the good aspects of the flesh, the aspects consume our kingship, our authority.
