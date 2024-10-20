@@ -6,3 +6,9 @@ that the ten commandments are related to gods image and likeness.
 
 prior to exodus 20 god revealed himself as perfect, almighty and all sufficient, but not until this chapter did he adequately reveal what kind of god he is. he did
 this indirectly through the law.
+
+10 commandments also called the ten words.
+
+#### jealous
+contray to our concept that god is broad minded, he calls himself a jealous god.
+we should not allow anything else to be a god to us.
