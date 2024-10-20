@@ -4,3 +4,5 @@ some commandments through an angel or through moses, but directly spoke with the
 the ten commandments are gods words and are called the words of God. as a commandments
 they are rules for us to follow, but as words of god, they are his breath, his breathing
 out into those who heard
+
+> if we consider the ten commandments only as laws and then try to keep them, we are not proper in our approach to the law. we should not apply the the ten commandments in this way. on the contrary, we should be those who love God and seek him. in this matter we should be like Paul in philippians 3, one who was pursuing christ out of love and even running after him. out of love for the lord, we should pursue him, contact him, and abide in his presence, dwelling together with him. if we do this, day by day we shall be infused with God.
