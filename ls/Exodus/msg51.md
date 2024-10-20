@@ -14,3 +14,4 @@ this indirectly through the law.
 - loving
 - righteous
 - truthful - god is light and in Him is no darkness at all.
+- pure
