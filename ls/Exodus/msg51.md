@@ -3,3 +3,6 @@ likeness are used positively, showing god made man in his image with his likenes
 in exodus 20:4 image and likeness are used negatively, showing god does not want us
 to bear any other image or likeness (which is idolatry) apart from him. this shows
 that the ten commandments are related to gods image and likeness.
+
+prior to exodus 20 god revealed himself as perfect, almighty and all sufficient, but not until this chapter did he adequately reveal what kind of god he is. he did
+this indirectly through the law.
