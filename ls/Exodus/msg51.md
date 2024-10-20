@@ -9,5 +9,8 @@ this indirectly through the law.
 
 10 commandments also called the ten words.
 
-jealous - contray to our concept that god is broad minded, he calls himself a jealous god.
-we should not allow anything else to be a god to us.
+- jealous - contray to our concept that god is broad minded, he calls himself a jealous god. we should not allow anything else to be a god to us.
+- holy
+- loving
+- righteous
+- truthful - god is light and in Him is no darkness at all.
