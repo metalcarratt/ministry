@@ -17,4 +17,9 @@ the way to be a loving seeker of god, taking the law as the testimony and breath
 - beholding his beauty
 - infused with his riches. "I am like an olive tree in the house of god" (p52:8); "those that are planted in the house of the lord shall flourish in the courts of our lord. they shall bring forth fruit in old age; they shall be full of sap and green." (p92:13-14)
 - enjoying the abundance of life. "they shall be abundantly satisfied with the fatness of thy house, and thou shall make them drink of the rivers of thy pleasures. for with thee is the fountain of life, in thy life we see light" (p36:8-9)
+- supplied with God to keep his words
+- treasuries the law. "I have rejoiced in the way of thy testimonies" (p119:14); "the law of thy mouth is better unto me than thousands of gold or silver" (p119:72); "therefore I love thy commandments above gold" (p119:127)
+- tasting the sweetness. "how sweet are thy words unto my taste, yea, sweeter than honey to my mouth." (p119:103)
+- hoping in the Word. "I prevented the dawning of the morning and cried, I hoped in thy word." (p119:147)
+- 
 - 
