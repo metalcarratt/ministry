@@ -21,5 +21,5 @@ the way to be a loving seeker of god, taking the law as the testimony and breath
 - treasuries the law. "I have rejoiced in the way of thy testimonies" (p119:14); "the law of thy mouth is better unto me than thousands of gold or silver" (p119:72); "therefore I love thy commandments above gold" (p119:127)
 - tasting the sweetness. "how sweet are thy words unto my taste, yea, sweeter than honey to my mouth." (p119:103)
 - hoping in the Word. "I prevented the dawning of the morning and cried, I hoped in thy word." (p119:147)
-- 
-- 
+
+the ten commandments were also given in an atmosphere of love. in the first commandment god reminded them how he had rescued them, and in the second he says he will visit the iniquities of those who hate him but extend mercy to those who love him.
