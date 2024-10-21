@@ -16,3 +16,5 @@ the way to be a loving seeker of god, taking the law as the testimony and breath
 - dwelling with God. "one thing I have desired of the lord, that will I seek, to dwell in the house of the lord all my days" (p27:4); "Lord though hast been our dwelling place through all generations" (90:1)
 - beholding his beauty
 - infused with his riches. "I am like an olive tree in the house of god" (p52:8); "those that are planted in the house of the lord shall flourish in the courts of our lord. they shall bring forth fruit in old age; they shall be full of sap and green." (p92:13-14)
+- enjoying the abundance of life. "they shall be abundantly satisfied with the fatness of thy house, and thou shall make them drink of the rivers of thy pleasures. for with thee is the fountain of life, in thy life we see light" (p36:8-9)
+- 
