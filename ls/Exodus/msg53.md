@@ -7,3 +7,5 @@ the first five commandments, each was given in an attitude of love.
 - in the third he commands not to take his name in vain, as a beloved wanting his name to be honored and used in a proper way
 - in the fourth he gives the sabbath as a sign of his engagement. as a holy day, the sabbath is a sign of our sanctification, like an engagement ring, a visible symbol of those who have been separated unto him.
 - in the fifth he asked them to honour their parents, whose source is traced back to God.
+
+> revealing himself as a jealous god, he requested that they have no other god, no other beloved, besides him. he was seeking their love so that they would keep his commandments to express him. ... the commandments in 20:1-12 were given not in a legal way, but in a courting way. in giving his law to his people, god wanted them to become his lovers.
