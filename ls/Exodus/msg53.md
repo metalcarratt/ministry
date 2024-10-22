@@ -15,3 +15,5 @@ the first five commandments, each was given in an attitude of love.
 
 **Jn 14:23-24**
 > Jesus answered and said to him, If anyone loves Me, he will keep My word, and My Father will love him, and We will come to him and make an abode with him. He who does not love Me does not keep My words; and the word which you hear is not Mine, but the Father’s who sent Me.
+
+the highest function of the law is to bring his people to him and make them one with him.
