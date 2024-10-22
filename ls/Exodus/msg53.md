@@ -5,5 +5,5 @@ the first five commandments, each was given in an attitude of love.
 - with the second he also requires them not to bow down or serve other gods, being jealous over them, as a husband would be jealous over his wife
 - in the second he also talks of giving mercy to those who love him, showing that as a bachelor he is seeking someone to love him, and that as the eternal god his mercy would extend eternally to those who love him.
 - in the third he commands not to take his name in vain, as a beloved wanting his name to be honored and used in a proper way
-- in the fourth he gives the sabbath as a sign of his engagement. as a holy day, the sabbath is a sign of our sanctification, a visible symbol of those who have been separated unto him.
+- in the fourth he gives the sabbath as a sign of his engagement. as a holy day, the sabbath is a sign of our sanctification, like an engagement ring, a visible symbol of those who have been separated unto him.
 - in the fifth he asked them to honour their parents, whose source is traced back to God.
