@@ -9,3 +9,9 @@ the first five commandments, each was given in an attitude of love.
 - in the fifth he asked them to honour their parents, whose source is traced back to God.
 
 > revealing himself as a jealous god, he requested that they have no other god, no other beloved, besides him. he was seeking their love so that they would keep his commandments to express him. ... the commandments in 20:1-12 were given not in a legal way, but in a courting way. in giving his law to his people, god wanted them to become his lovers.
+
+**Jn 14:21**
+> He who has My commandments and keeps them, he is the one who loves Me; and he who loves Me will be loved by My Father, and I will love him and will manifest Myself to him.
+
+**Jn 14:23-24**
+> Jesus answered and said to him, If anyone loves Me, he will keep My word, and My Father will love him, and We will come to him and make an abode with him. He who does not love Me does not keep My words; and the word which you hear is not Mine, but the Father’s who sent Me.
