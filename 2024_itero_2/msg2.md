@@ -12,41 +12,41 @@ God created the universe and then hid in it, to the point that those living in i
 
 1 kings 19
 > 
-> 1K 19:9And there he went into a cave and lodged there. And at that time the word of Jehovah came to him; and He said to him, What are you doing here, Elijah?
+> 1K 19:9 And there he went into a cave and lodged there. And at that time the word of Jehovah came to him; and He said to him, What are you doing here, Elijah?
 > 
-> 1K 19:10And he said, I have been very jealous for Jehovah the God of hosts; for the children of Israel have forsaken Your covenant, thrown down Your altars, and slain Your prophets with the sword; and I alone am left, and they seek to take my life.
+> 1K 19:10 And he said, I have been very jealous for Jehovah the God of hosts; for the children of Israel have forsaken Your covenant, thrown down Your altars, and slain Your prophets with the sword; and I alone am left, and they seek to take my life.
 > 
-> 1K 19:11And He said, Go out, and stand upon the mountain before Jehovah. And suddenly Jehovah passed by, and a great, strong wind rent the mountains and broke the rocks in pieces before Jehovah — Jehovah was not in the wind. And after the wind, an earthquake — Jehovah was not in the earthquake.
+> 1K 19:11 And He said, Go out, and stand upon the mountain before Jehovah. And suddenly Jehovah passed by, and a great, strong wind rent the mountains and broke the rocks in pieces before Jehovah — Jehovah was not in the wind. And after the wind, an earthquake — Jehovah was not in the earthquake.
 > 
-> 1K 19:12And after the earthquake, a fire — Jehovah was not in the fire. And after the fire, a gentle, quiet voice.
+> 1K 19:12 And after the earthquake, a fire — Jehovah was not in the fire. And after the fire, a gentle, quiet voice.
 >
-> 1K 19:13And when Elijah heard it, he wrapped his face in his mantle and went out and stood at the entrance of the cave. And then a voice came to him and said, What are you doing here, Elijah?
+> 1K 19:13 And when Elijah heard it, he wrapped his face in his mantle and went out and stood at the entrance of the cave. And then a voice came to him and said, What are you doing here, Elijah?
 > 
-> 1K 19:14And he said, I have been very jealous for Jehovah the God of hosts; for the children of Israel have forsaken Your covenant, thrown down Your altars, and slain Your prophets with the sword; and I alone am left, and they seek to take my life.
+> 1K 19:14 And he said, I have been very jealous for Jehovah the God of hosts; for the children of Israel have forsaken Your covenant, thrown down Your altars, and slain Your prophets with the sword; and I alone am left, and they seek to take my life.
 > 
-> 1K 19:15And Jehovah said to him, Go; return on your way to the wilderness of Damascus; and when you come there, anoint Hazael as king over Syria;
+> 1K 19:15 And Jehovah said to him, Go; return on your way to the wilderness of Damascus; and when you come there, anoint Hazael as king over Syria;
 > 
-> 1K 19:18Yet I have left Myself seven thousand in Israel, all the knees that have not bowed unto Baal and every mouth that has not kissed him.
+> 1K 19:18 Yet I have left Myself seven thousand in Israel, all the knees that have not bowed unto Baal and every mouth that has not kissed him.
  
 Sometimes we are trying to spend time with the Lord but there are so many thoughts. Maybe not bad thoughts, thoughts about the church, our burden, etc. But we have to learn to put our thoughts aside and listen in quietness. "My soul waits in silence before him". Our soul needs to be quieted. 'Surely I have calmed And quieted my soul." "Be still and know that I am god." Sometimes we just need to be still.
 
 > Psalm 46 the earth is quaking but we can be still and enjoy the streams that gladden the city of god.
 >
-> Ps 46:1God is our refuge and strength; / A help in distress, He is most readily found.
+> Ps 46:1 God is our refuge and strength; / A help in distress, He is most readily found.
 >
-> Ps 46:2Therefore we will not fear, / Though the earth change, / And the mountains slip into the heart of the seas;
+> Ps 46:2 Therefore we will not fear, / Though the earth change, / And the mountains slip into the heart of the seas;
 >
-> Ps 46:3Though the waters of the sea roar and foam; / Though the mountains shake at its swelling. Selah
+> Ps 46:3 Though the waters of the sea roar and foam; / Though the mountains shake at its swelling. Selah
 >
-> Ps 46:4There is a river whose streams gladden the city of God, / The holy place of the tabernacles of the Most High.
+> Ps 46:4 There is a river whose streams gladden the city of God, / The holy place of the tabernacles of the Most High.
 
 When the lord met Mary after the resurrection she thought he was the gardener. The Lord met the two disciples on the way to ameas And they did not recognise him the whole way. This is the lords temperament. There is one book in the bible (esther) that doesn't mention god at all. 
 
 "Shallow earth" - always guided by emotion and circumstances. Things can affect us, but not to the point they dishearten and discourage us. The Lord was like a tender plant in a barren place. The Lord never looked to his environment for sustenance, encouragement, supply. His roots went so far down they reached the heavens. He would always go away privately to pray. Jeremiah 17:7-8.
 
-> Je 17:7Blessed is the man who trusts in Jehovah / And whose trust Jehovah is.
+> Je 17:7 Blessed is the man who trusts in Jehovah / And whose trust Jehovah is.
 > 
-> Je 17:8And he will be like a tree transplanted beside water, / Which sends out its roots by a stream, / And will not be afraid when heat comes; / For its leaves remain flourishing, / And it will not be anxious in the year of drought / And will not cease to bear fruit.
+> Je 17:8 And he will be like a tree transplanted beside water, / Which sends out its roots by a stream, / And will not be afraid when heat comes; / For its leaves remain flourishing, / And it will not be anxious in the year of drought / And will not cease to bear fruit.
 
 Whenever we see someone stumble, don't think it was sudden or accidental. Day after day of no roots.
 
