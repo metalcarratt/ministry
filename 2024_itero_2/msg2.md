@@ -30,8 +30,8 @@ God created the universe and then hid in it, to the point that those living in i
  
 Sometimes we are trying to spend time with the Lord but there are so many thoughts. Maybe not bad thoughts, thoughts about the church, our burden, etc. But we have to learn to put our thoughts aside and listen in quietness. "My soul waits in silence before him". Our soul needs to be quieted. 'Surely I have calmed And quieted my soul." "Be still and know that I am god." Sometimes we just need to be still.
 
-> Psalm 46 the earth is quaking but we can be still and enjoy the streams that gladden the city of god.
->
+Psalm 46 the earth is quaking but we can be still and enjoy the streams that gladden the city of god.
+
 > Ps 46:1 God is our refuge and strength; / A help in distress, He is most readily found.
 >
 > Ps 46:2 Therefore we will not fear, / Though the earth change, / And the mountains slip into the heart of the seas;
