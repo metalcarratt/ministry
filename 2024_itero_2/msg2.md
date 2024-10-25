@@ -44,6 +44,10 @@ When the lord met Mary after the resurrection she thought he was the gardener. T
 
 "Shallow earth" - always guided by emotion and circumstances. Things can affect us, but not to the point they dishearten and discourage us. The Lord was like a tender plant in a barren place. The Lord never looked to his environment for sustenance, encouragement, supply. His roots went so far down they reached the heavens. He would always go away privately to pray. Jeremiah 17:7-8.
 
+> Je 17:7Blessed is the man who trusts in Jehovah / And whose trust Jehovah is.
+> 
+> Je 17:8And he will be like a tree transplanted beside water, / Which sends out its roots by a stream, / And will not be afraid when heat comes; / For its leaves remain flourishing, / And it will not be anxious in the year of drought / And will not cease to bear fruit.
+
 Whenever we see someone stumble, don't think it was sudden or accidental. Day after day of no roots.
 
 Hezekiah showed the babylonians everything and then his people lost everything. We need to learn how to testify. Don't do anything secretly for self glory. Need to learn how to follow the inner anointing.
