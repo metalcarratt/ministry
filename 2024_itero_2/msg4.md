@@ -4,6 +4,32 @@ The word of the cross. The application of the cross is vitally necessary for the
 
 (Matt 16) the church and gods enemy revealed.
 
+> Mt 16:13 Now when Jesus came into the parts of Caesarea Philippi, He asked His disciples, saying, Who do men say that the Son of Man is?
+>
+> Mt 16:14 And they said, Some, John the Baptist; and others, Elijah; and still others, Jeremiah or one of the prophets.
+> 
+> Mt 16:15 He said to them, But you, who do you say that I am?
+> 
+> Mt 16:16 And Simon Peter answered and said, You are the Christ, the Son of the living God.
+>
+> Mt 16:17 And Jesus answered and said to him, Blessed are you, Simon Barjona, because flesh and blood has not revealed this to you, but My Father who is in the heavens.
+>
+>Mt 16:18 And I also say to you that you are Peter, and upon this rock I will build My church, and the gates of Hades shall not prevail against it.
+>
+>Mt 16:19 I will give to you the keys of the kingdom of the heavens, and whatever you bind on the earth shall have been bound in the heavens, and whatever you loose on the earth shall have been loosed in the heavens.
+>
+> Mt 16:20 Then He charged the disciples not to tell anyone that He was the Christ.
+>
+> Mt 16:21 From that time Jesus began to show to His disciples that He must go to Jerusalem and suffer many things from the elders and chief priests and scribes and be killed and on the third day be raised.
+>
+> Mt 16:22 And Peter took Him aside and began to rebuke Him, saying, God be merciful to You, Lord! This shall by no means happen to You!
+>
+> Mt 16:23 But He turned and said to Peter, Get behind Me, Satan! You are a stumbling block to Me, for you are not setting your mind on the things of God, but on the things of men.
+>
+> Mt 16:24 Then Jesus said to His disciples, If anyone wants to come after Me, let him deny himself and take up his cross and follow Me.
+>
+> Mt 16:25 For whoever wants to save his soul-life shall lose it; but whoever loses his soul-life for My sake shall find it.
+
 The word, the utterance, of the cross. Everywhere Paul went this was his gospel. To the unbelievers foolishness, but to us who believe the power of god.
 
 Satan came out of the gate of Peter's self. Three gates: the natural mind set on the things of men; the self, the I; the soul life.
