@@ -6,7 +6,25 @@ The sovereignty is very much a matter of the throne. Gods sovereignty is somewha
 
 **Acts 4:24**, god was sovereign over the persecution of the sanhedrin.
 
+> Ac 4:24 And when they heard this, they lifted up their voice with one accord to God and said, Sovereign Master, You are the One who has made heaven and earth and the sea and all things in them,
+
 **Daniel 4**. God gave nebuchadnezzar a dream, and Daniel interpreted it and gave him a warning. But the word did not affect him, so after 12 months, he was driven out. V32 until you come to know that the most high is the rulers of the kings of the earth. V34, he learns a great lesson. God is God. 
+
+> Dn 4:27 Therefore, O king, let my counsel be acceptable to you: Break off your sins by doing righteousness, and your iniquities by showing mercy to the poor; perhaps there may be a prolonging of your prosperity.
+> 
+> Dn 4:28 All this came upon Nebuchadnezzar the king.
+> 
+> Dn 4:29 At the end of twelve months he was walking upon the roof of the royal palace of Babylon.
+> 
+> Dn 4:30 The king responded and said, Is this not Babylon the great, which I have built up as a royal house by the might of my power and for the glory of my majesty?
+>
+> Dn 4:31 While the word was still in the king’s mouth, a voice came down from heaven: To you it is spoken, King Nebuchadnezzar: The kingdom has passed on from you;
+> 
+> Dn 4:32 And from among mankind you shall be driven out, and with the beasts of the field shall your dwelling place be; you shall be made to eat grass as bulls do; and seven periods of time will pass over you, until you come to know that the Most High is the Ruler over the kingdom of men and gives it to whomever He wills.
+> 
+> Dn 4:33 In that very hour the word concerning Nebuchadnezzar was fulfilled; and from among mankind he was driven out, and he began to eat grass as bulls do, and his body was wet with the dew of heaven, until his hair had grown like eagles’ feathers and his nails like birds’ claws.
+> 
+> Dn 4:34 And at the end of those days I, Nebuchadnezzar, lifted up my eyes to heaven, and my reason returned to me; and I blessed the Most High, and I praised and honored the ever-living One; For His dominion is an eternal dominion, / And His kingdom is from generation to generation;
 
 **Romans 9:19-20**, who withstands his will? Who are you to answer back to God? We all like to argue with God. We all argue with God. Our situation. Why don't you fix this? Joseph was one who understood God was sovereign. He feared God. "All things work together for good." (Rom 8:28) Joseph remained under gods sovereign hand and did not initiate anything. Let him initiate. Respect and honour gods sovereignty.
 
@@ -14,7 +32,19 @@ The sovereignty is very much a matter of the throne. Gods sovereignty is somewha
 
 **Rom 9:23** vessels of honour and vessels of mercy. Regardless of right or wrong, sinful behaviour, rebellion throughout the years, we were already chosen. We are vessels. Not a matter of behaviour or improvement but of filling the vessel with God.
 
+> Rm 9:19 You will say to me then, Why does He still find fault? For who withstands His will?
+> 
+> Rm 9:20 But rather, O man, who are you who answer back to God? Shall the thing molded say to him who molded it, Why did you make me thus?
+> 
+> Rm 9:21 Or does not the potter have authority over the clay to make out of the same lump one vessel unto honor and another unto dishonor?
+> 
+> Rm 9:22 And what if God, wishing to demonstrate His wrath and make His power known, endured with much long-suffering vessels of wrath fitted for destruction,
+>
+>Rm 9:23 In order that He might make known the riches of His glory upon vessels of mercy, which He had before prepared unto glory,
+
 **Ezekiel 1:26** the throne. Our submission to his throne takes place through our spirit. There is a sense of life within us ruling and reigning. This is the throne. But how much do we rebel? Many times the lord gives us a very direct feeling. Don't say that. But you go ahead. If we see that there is a throne and he is on the throne.
+
+> Ezk 1:26 And above the expanse that was over their heads was the likeness of a throne, like the appearance of a sapphire stone; and upon the likeness of the throne was One in appearance like a man, above it.
 
 the throne is the center of the universe. The lords presence is always with the throne. To allow God to have the highest position in our Christian life. He has the position to reign in us. If you want gods purpose to be carried out through you you must be a person under gods throne. To claim authority over the saints indicates we are not under a clear sky. We should not try to rule over the saints. Humble ourselves under a clear sky. The authority is not mine, yours or others, it is the throne above a clear sky. None of us have any authority. Moses, when the people rebelled, did not exercise his authority but bowed down to God who has the authority. Then the Lord came in to vindicate. Do not take the natural human way to exercise any kind of authority. 
 
