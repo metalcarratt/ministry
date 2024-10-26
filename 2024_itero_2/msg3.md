@@ -8,7 +8,7 @@ The kingdom is a realm not only of ruling and reigning but of life. This kingdom
 
 For life to develop, it needs to be in a proper realm. For example the human life would not be able to develop very easily on the moon. The kingdom is the reality of the church. The church should bear the characteristics of the kingdom. What is our view of the church? Just a place for some saved ones to gather and have the lords table meeting? It depends on whether there is the reality of the kingdom. 
 
-Two conditions for a church to exist. 1) the authority of the holy Spirit. 2) the ground of locality. When watchman nee started breaking bread there were only three of them. But when they broke bread the authority of the spirit was poured out. There may be a thousand in a locality but no authority of the spirit. Then that is not a genuine church. We must respect the headship of christ. No one can establish a church without the heads hip of christ.
+Two conditions for a church to exist. 1) the authority of the holy Spirit. 2) the ground of locality. When watchman nee started breaking bread there were only three of them. But when they broke bread the authority of the spirit was poured out. There may be a thousand in a locality but no authority of the spirit. Then that is not a genuine church. We must respect the headship of christ. No one can establish a church without the headship of christ.
 
 In the nj the city and the temple are joined. The building of the temple is through our enjoyment and flowing out of the riches of life, but the city is needed as the protection of the temple, to guard the temple from attacks.
 
