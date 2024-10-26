@@ -2,7 +2,7 @@ The kingdom and the church cannot exist without each other.
 
 The church is christs increase in life, the kingdom is his increase in administration. Administration is related to the decisions we have to make, the actions we have to take. The Lord lived on the earth as a man, but also stood for gods purpose in his administration. The exercise of gods authority.
 
-The most basic element of the gospel is the kingdom. John the Baptist came to announce the kingdom and the lord Jesus came to do the same thing. Most people consider the gospel to be about sin, forgiveness and heaven. But in the NT the gospel is connected to the kingdom. Needed to bring the rebels back to God. Man became fallen mainly because he became rebellious, fallen from the proper position he had with god. Man's man problem is not sin but rebellion against God. Need to be brought back to gods rule and reign through gods light.
+The most basic element of the gospel is the kingdom. John the Baptist came to announce the kingdom and the lord Jesus came to do the same thing. Most people consider the gospel to be about sin, forgiveness and heaven. But in the NT the gospel is connected to the kingdom. Needed to bring the rebels back to God. Man became fallen mainly because he became rebellious, fallen from the proper position he had with god. Man's main problem is not sin but rebellion against God. Need to be brought back to gods rule and reign through gods light.
 
 The kingdom is a realm not only of ruling and reigning but of life. This kingdom is a life kingdom. 
 
