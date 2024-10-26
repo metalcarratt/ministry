@@ -52,9 +52,21 @@ the throne is the center of the universe. The lords presence is always with the 
 
 In light of our view of gods sovereignty our appreciation of mercy should be uplifted. He is sovereign, but he is also merciful. Matt 9:9-13. Gods mercy reaches not the righteous but sinners. Tax collectors, sinners, the poor, the blind, the lepers. These are the people he calls.the pharisees self righteousness was not getting them anywhere. A certain kind of humbleness is required. If you realise you are sinful, weak, needy, then you value God's mercy. We are dead in offenses and sins. The dead are in a hopeless situation. No matter how you think about yourself, you are dead in your offenses and sins. Rom 11:32, god has shut up all indisobedience that he might show mercy to all. 
 
+> Rm 11:32 For God has shut up all in disobedience that He might show mercy to all.
+
 If we know gods mercy we will not trust in our effort or be disappointed by our failures. Pray, Lord I need your mercy. We all are in need of gods mercy. if we open to God in this way he surely will bring us through.
 
 Rom 9:14-18 God chose us and planned for us to believe, but he did not believe for us. We had to use our free will to believe. God hardened pharaohs heart to manifest his power. Thus even pharaohs' hardness was useful to God. The more we recognise gods sovereignty the more we will appreciate his mercy. 
+
+> Rm 9:14 What then shall we say? Is there unrighteousness with God? Absolutely not!
+>
+> Rm 9:15 For to Moses He says, “I will have mercy on whomever I will have mercy, and I will have compassion on whomever I will have compassion.”
+>
+> Rm 9:16 So then it is not of him who wills, nor of him who runs, but of God who shows mercy.
+>
+> Rm 9:17 For the Scripture says to Pharaoh, “For this very thing I have raised you up, that I might show in you My power, and that My name might be proclaimed in all the earth.”
+>
+> Rm 9:18 So then He has mercy on whom He wills, and He hardens whom He wills.
 
 The recipients of gods mercy are the pitiful ones, not the pharisees. Have you seen, tasted gods mercy? What might prevent us is a sense of self-righteousness. Laodecia. Pride in spiritual knowledge. Not recognizing our actual situation. May we be rescued and protected form every form of spiritual pride. The blind beggar, "Son of David, be merciful to me." May we learn to cry out, "Lord, have mercy on me!" When we touch this we will realise everything depends on His mercy. Our going on depends on His mercy.
 
