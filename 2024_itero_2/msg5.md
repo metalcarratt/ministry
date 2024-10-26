@@ -28,9 +28,9 @@ The sovereignty is very much a matter of the throne. Gods sovereignty is somewha
 
 **Romans 9:19-20**, who withstands his will? Who are you to answer back to God? We all like to argue with God. We all argue with God. Our situation. Why don't you fix this? Joseph was one who understood God was sovereign. He feared God. "All things work together for good." (Rom 8:28) Joseph remained under gods sovereign hand and did not initiate anything. Let him initiate. Respect and honour gods sovereignty.
 
-> Rm 8:28 And we know that all things work together for good to those who love God, to those who are called according to His purpose
-
 **Rom 9:21**, the potter. He is the potter and we are the clay. If we don't see this we live in unhappiness. See something different. If I could only change my situation. If we realise God is sovereign we can gain the benefit of rom 8:28? **Learn to join ourselves to Him so he can do what he wants to do. He wants to build the church. But our entering into that reality is not our initiation. It's up to his sovereignty.** This does not mean we do nothing. Rather our responsibility increases, but it has to comes under his kingdom.
+
+> Rm 8:28 And we know that all things work together for good to those who love God, to those who are called according to His purpose
 
 **Rom 9:23** vessels of honour and vessels of mercy. Regardless of right or wrong, sinful behaviour, rebellion throughout the years, we were already chosen. We are vessels. Not a matter of behaviour or improvement but of filling the vessel with God.
 
