@@ -1,0 +1,1 @@
+muse upon the word - deeper than pray-reading, it includes prayer, worship, enjoyment, conversation, bowing down, lifting our hands to receive the word, rejoicing, praising, shouting and weeping over the word.
