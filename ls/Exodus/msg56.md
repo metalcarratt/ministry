@@ -1,0 +1,17 @@
+based on psalm 119 the psalmist enjoyed the law as the word of god by:
+- seeking god
+- loving his name
+- seeking his face/countenance in the word
+- caring for the shining of his face
+- walking in his presence and dwelling in him as their dwelling place
+- believing it
+- choosing it
+- lifting up their hands to welcome it
+- loving it and delighting in it
+- tasting it
+- rejoicing in it
+- singing it
+- respecting it
+- having a sound/healthy heart toward it
+- inclinging their heart toward it
+- seeking and longing and hoping in prayer and trusting
