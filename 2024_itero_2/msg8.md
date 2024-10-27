@@ -10,7 +10,7 @@ In this realm everything divine is here.
 
 The kingdom of God refers more to the species of God than the reign of God, especially in John 3. Not just to enter another sovereignty or government but to become another species. John 3:5.
 
-> Jn 3:5 Jesus answered, Truly, truly, I say to you, Unless one is born of water and the Spirit, he cannot enter into the kingdom of God.
+> Jn 3:5 Jesus answered, Truly, truly, I say to you, **Unless one is born** of water and the Spirit, he cannot enter into the kingdom of God.
 
 Help us appreciate the gospel, especially the gospel of the kingdom. We must be those who preach the kingdom gospel.
 
@@ -18,15 +18,15 @@ The sower went out to sow. What does this have to do with the kingdom? Where is 
 
 The sowing of the seed Matt. 13:3
 
-> Mt 13:3 And He spoke many things to them in parables, saying, Behold, the sower went out to sow.
+> Mt 13:3 And He spoke many things to them in parables, saying, **Behold, the sower went out to sow**.
 
 The propogation and spreading of the seed Acts 6:7; 12:24; 19:20
 
-> Ac 6:7 And the word of God grew, and the number of the disciples in Jerusalem multiplied greatly; and a large number of the priests obeyed the faith.
+> Ac 6:7 And **the word of God grew**, and the number of the disciples in Jerusalem multiplied greatly; and a large number of the priests obeyed the faith.
 
-> Ac 12:24 But the word of God grew and multiplied.
+> Ac 12:24 But **the word of God grew and multiplied**.
 
-> Ac 19:20 Thus, the word of the Lord grew mightily and prevailed.
+> Ac 19:20 Thus, **the word of the Lord grew** mightily and prevailed.
 
 The growth, development of the seed - 2 Peter 1:3-11
 
@@ -34,9 +34,9 @@ The growth, development of the seed - 2 Peter 1:3-11
 >
 > 2P 1:4 Through which He has granted to us precious and exceedingly great promises that through these you might become partakers of the divine nature, having escaped the corruption which is in the world by lust.
 > 
-> 2P 1:5 And for this very reason also, adding all diligence, supply bountifully in your faith virtue; and in virtue, knowledge;
+> 2P 1:5 And for this very reason also, **adding all diligence, supply bountifully in your faith** virtue; and in virtue, knowledge;
 > 
-> 2P 1:11 For in this way the entrance into the eternal kingdom of our Lord and Savior Jesus Christ will be richly and bountifully supplied to you.
+> 2P 1:11 For in this way **the entrance into the eternal kingdom** of our Lord and Savior Jesus Christ will be richly and bountifully supplied to you.
 
 The move of the divine trinity with the divine coordination shows us the harmony, beauty and excellency in the divine trinity and is an excellent and beautiful pattern that the head has set up for our coordination as members of his body; **today in the church life the body of Christ has not been built up adequately because of a shortage of the proper coordination**.
 
