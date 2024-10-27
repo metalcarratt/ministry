@@ -1,6 +1,6 @@
 # spiritual warfare to bring in the kingdom of God and living in the kingdom of the Son of God's love
 
-As the age comes to an end there will be an intensification in spiritual warfare. My heart aches that there are thousands of saints who have not passed through the third stage, the experience of the cross applied to us experientially the the self, the flesh, the natural constitution. Because this third stage is so crucial. At the end of the third stage, with the cross deeply operating on our self, we will realise the life we have is corporate. Gradually there will be a body consciousness.
+As the age comes to an end there will be an intensification in spiritual warfare. My heart aches that there are thousands of saints who have not passed through the third stage, the experience of the cross applied to us experientially to the self, the flesh, the natural constitution. Because this third stage is so crucial. At the end of the third stage, with the cross deeply operating on our self, we will realise the life we have is corporate. Gradually there will be a body consciousness.
 
 The kingdom of god will not come in gently. There will be warfare to bring it in. Satan does not want the power of the kingdom of God to be on the earth.
 
