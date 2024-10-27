@@ -6,7 +6,7 @@ Life is so we can minister life to others. So life is for service. But service m
 
 ## for life we need oil
 
-How much spirit is there in your mind, in your thinking. How much in your emotion, in your love or hate? How much in your will, your decisions? We live our life we are living in our soul. How much have we allowed the spirit to penetrate into our mind, emotion and will. How much does the throne have a place in our soul. 
+How much spirit is there in your mind, in your thinking. How much in your emotion, in your love or hate? How much in your will, your decisions? When we live our life we are living in our soul. How much have we allowed the spirit to penetrate into our mind, emotion and will. How much does the throne have a place in our soul. 
 
 "Buy" indicates paying a price, such as giving up the world, dealing with the self, loving the lord above all, and counting all things loss for christ.
 The paying of the price happens in all the ordinary things of our human life. Pay the price to gain the lord. Need to be in this mindset. Whatever I'm doing, to gain the lord while carrying on all the sundry things. 
