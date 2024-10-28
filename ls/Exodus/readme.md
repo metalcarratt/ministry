@@ -63,3 +63,25 @@ The hidden manna:
 The water flowing out of the cleft rock:
 - [Message 40](msg40.md) - Crucifixion of Christ, drinking more necessary than eating
 - [Message 41](msg41*.md) - Tested by God in a situation of dryness
+- [Message 42](msg42.md) - The river is resurrection life flowing from the throne
+- [Message 43](msg43.md) - The rock that followed them was Christ; what they drank was a spiritual drink; we become what we eat and drink
+- [Message 44](msg44.md) - drink by calling on the Lord
+- [Message 45](msg45.md) - with the drinking comes the flowing
+
+The war against Amalek (the flesh)
+- [Message 46](msg46.md) - the flesh is close to us
+- [Message 47](msg47.md) - to fight the flesh we need the priesthood (our spirit), the kingship (our submission) and the rock (Christ as our endurance)
+- [Message 48](msg48.md) - not only the bad aspect of the flesh but also the good needs to be dealt with as it is against God's throne
+
+A picture of the kingdom
+- [Message 49](msg49.md) - Jethro a type of the gentiles turning to the church, Zipporah a type of the church coming out of the world to be married to the Lord
+
+The giving of the law
+- [Message 50](msg50.md) - The first time Israel enjoyed God's presence and heard His direct speaking
+- [Message 51](msg51.md) - The law reveals what kind of Person God is
+- [Message 52](msg52.md) - The commandments are the words of God and were given in an atmosphere of love
+- [Message 53](msg53.md) - the law given as an engagement contract to God's people
+- [Message 54](msg54.md) - keeping the law by loving the Lord
+- [Message 55](msg55.md) - the commandments are verified throughout the Bible, we must neither abandon nor misuse the law
+- [Message 56](msg56.md) - How the psalmists enjoyed the law as the Word of God I
+- [Message 57](msg57.md) - How the psalmists enjoyed the law as the Word of God II
