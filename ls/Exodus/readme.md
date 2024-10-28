@@ -76,7 +76,7 @@ The war against Amalek (the flesh)
 A picture of the kingdom
 - [Message 49](msg49.md) - Jethro a type of the gentiles turning to the church, Zipporah a type of the church coming out of the world to be married to the Lord
 
-The giving of the law
+The giving of the law as an engagement contract in an atmosphere of love
 - [Message 50](msg50.md) - The first time Israel enjoyed God's presence and heard His direct speaking
 - [Message 51](msg51.md) - The law reveals what kind of Person God is
 - [Message 52](msg52.md) - The commandments are the words of God and were given in an atmosphere of love
