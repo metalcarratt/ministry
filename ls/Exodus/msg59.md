@@ -6,3 +6,5 @@ problems of our heart that prevent us from receiving help and blessing when we c
 - not getting through on a matter with the Lord
 
 when we come to the word we need to humble ourselves to deal with anything between us and the Lord. we should not assume our heart is so clean that there is nothing blocking or covering our fellowship with him.
+
+we should also humble ourselves not trust ourselves, have confidence in ourselves, not insisting on anything. then we will receive light.
