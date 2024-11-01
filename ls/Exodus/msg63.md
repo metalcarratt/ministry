@@ -4,3 +4,5 @@ to the lord, you will have the conviction deep within that even though you canno
 > "Lord i love the word and I love you. but lord you know that I cant do what the bible says. now I know that whatever you tell me to do, you will do for me. I know what is on your heart. you have no intention for me to do anything. although you tell me to do certain things, your desire is that you do these things in me. you simply want me to love You and stay with you. the more it stay with you, love you, and tell you that I cannot do anything, the happier you are."
 
 the negative function of the law: to expose us, subdued us until we become humble, and to guard us unto Christ.
+
+> the concept of doing things for god is a fallen human concept. it is also a religious concept. after god created man, god did not charge him to do many things for him. instead, he gave man a commandments related to his eating. god placed the man created by him in front of the tree of life and warned him not to eat of the tree of knowledge of good and evil.
