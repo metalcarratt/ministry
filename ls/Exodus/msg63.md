@@ -1,0 +1,1 @@
+> this matter of telling the lord thatwe love him and his word, but that we are not able to do what the bible says is surely not a natural concept or a religious concept. however, it is according to gods economy.
