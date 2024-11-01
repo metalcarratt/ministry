@@ -1,1 +1,2 @@
-> this matter of telling the lord thatwe love him and his word, but that we are not able to do what the bible says is surely not a natural concept or a religious concept. however, it is according to gods economy.
+> this matter of telling the lord thatwe love him and his word, but that we are not able to do what the bible says is surely not a natural concept or a religious concept. however, it is according to gods economy. ... if you say this 
+to the lord, you will have the conviction deep within that even though you cannot fulfill this requirement, the lord will do it in you and through you. as long as you love the lord and his word and as long as you stay with him, he will do in you what you cannot do in yourself.
