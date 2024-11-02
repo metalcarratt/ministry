@@ -6,3 +6,6 @@ to the lord, you will have the conviction deep within that even though you canno
 the negative function of the law: to expose us, subdued us until we become humble, and to guard us unto Christ.
 
 > the concept of doing things for god is a fallen human concept. it is also a religious concept. after god created man, god did not charge him to do many things for him. instead, he gave man a commandments related to his eating. god placed the man created by him in front of the tree of life and warned him not to eat of the tree of knowledge of good and evil.
+
+
+> in the book of Genesis god did not appear for the purpose of telling man what to do. instead god came again and again to make promises, promises which indicate that gods intention was to do everything for man. on our part we should simply turn to Him, seek him, love him, be one with him, and stand with him in his interest. then he will do everything for us.
