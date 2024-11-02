@@ -9,3 +9,6 @@ the negative function of the law: to expose us, subdued us until we become humbl
 
 
 > in the book of Genesis god did not appear for the purpose of telling man what to do. instead god came again and again to make promises, promises which indicate that gods intention was to do everything for man. on our part we should simply turn to Him, seek him, love him, be one with him, and stand with him in his interest. then he will do everything for us.
+
+
+> our responsibility is to love him, receive him, stay with him, and spend time with him so that he can infuse himself into us. do not worry about fulfilling gods requirement. simply open and receive him.
