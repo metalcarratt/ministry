@@ -9,3 +9,5 @@ the law has three functions: to testify of God, to expose us, and to subdue us. 
 when moses came down from the mountain his face was shining because he had spent time in God's presence and had been infused with god. he was not trying to keep the commandments, but spent time in gods presence and enjoyed a divine infusion.
 
 the law is spiritual, holy, just and good. through the laws exposure we come to know that we are common, unjust and evil
+
+> the bible is intended to be the tree of life.  but if we separate ourselves from the lord and still attempt to use the bible, it will become the tree of knowledge. whether the bible is the tree of life or the tree of knowledge to us depends on our condition and standing. 
