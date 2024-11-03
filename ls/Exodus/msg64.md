@@ -7,3 +7,5 @@ the law has three functions: to testify of God, to expose us, and to subdue us. 
 > his intention is to use the law to portray himself and then expose us and subdue us so that we may open to him and allow him to come into us to be our life and everything to us. then he will live in us, and we shall live him.
 
 when moses came down from the mountain his face was shining because he had spent time in God's presence and had been infused with god. he was not trying to keep the commandments, but spent time in gods presence and enjoyed a divine infusion.
+
+the law is spiritual, holy, just and good. through the laws exposure we come to know that we are common, unjust and evil
