@@ -5,3 +5,5 @@ hearts of the people. it was their hardened heart which has turned away from the
 if our heart is right we will receive blessing when we hear his word. but if we are indifferent it will cause our heart to be hardened and there will be a veil.
 
 we are mirrors. when the veil covers us the law is only condemnation to us. but when the veil is removed we can behold the lord and reflect him.
+
+whether we are in the ot or the nt experientially depends on our heart. if our heart is veiled we are in the ot. if our heart is turned to the lord and unveiled we are in the nt.
