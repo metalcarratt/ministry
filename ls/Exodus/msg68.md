@@ -10,8 +10,8 @@ if all the israelites had had the attitude of a slave, not caring for their righ
 Mk 12:30-31
 > And you shall love the Lord your God from your whole heart and from your whole soul and from your whole mind and from your whole strength.” The second is this: “You shall love your neighbor as yourself.” There is no other commandment greater than these.
 
-Rm 13:8O
-> we nothing to anyone except to love one another; for he who loves the other has fulfilled the law.
+Rm 13:8
+> Owe nothing to anyone except to love one another; for he who loves the other has fulfilled the law.
 
 Rm 13:10
 > Love does not work evil to his neighbor; therefore love is the fulfillment of the law.
