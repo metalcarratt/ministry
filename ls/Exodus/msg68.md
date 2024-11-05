@@ -19,3 +19,4 @@ Rm 13:10
 Ga 5:14
 > For the whole law is fulfilled in one word, in this, “You shall love your neighbor as yourself.”
 
+> in human law there is no place for humility and love. but the prerequisite of fulfilling the divine ordinances is emptying ourselves, humbling ourselves, not claiming anything for ourselves, and sacrificing ourselves to serve others.
