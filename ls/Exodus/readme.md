@@ -76,7 +76,7 @@ The war against Amalek (the flesh)
 A picture of the kingdom
 - [Message 49](msg49.md) - Jethro a type of the gentiles turning to the church, Zipporah a type of the church coming out of the world to be married to the Lord
 
-The giving of the law as an engagement contract in an atmosphere of love
+The "day" aspect of the law - the giving of the law as an engagement contract in an atmosphere of love
 - [Message 50](msg50.md) - The first time Israel enjoyed God's presence and heard His direct speaking
 - [Message 51](msg51.md) - The law reveals what kind of Person God is
 - [Message 52](msg52.md) - The commandments are the words of God and were given in an atmosphere of love
@@ -85,3 +85,13 @@ The giving of the law as an engagement contract in an atmosphere of love
 - [Message 55](msg55.md) - the commandments are verified throughout the Bible, we must neither abandon nor misuse the law
 - [Message 56](msg56.md) - How the psalmists enjoyed the law as the Word of God I
 - [Message 57](msg57.md) - How the psalmists enjoyed the law as the Word of God II
+- [Message 58](msg58.md) - the functions of the Word are the actions of a living Person
+- [Message 59](msg59.md) - Dealing with our heart when we come to the Word
+- [Message 60](msg60.md) - the top benefit of enjoying the Word is God Himself
+
+The "night" aspect of the law
+- [Message 61](msg61.md) - Which aspect we enjoy depends on our attitude to the Word
+- [Message 62](msg62.md) - Just come to the Word to be infused
+- [Message 63](msg63.md) - Being subdued, telling the Lord we cannot do it, receiving the commandments as promises
+- [Message 64](msg64.md) - Being subdued, being infused
+- [Message 65](msg65.md) - Our heart needs to be soft, not hard, when we come to the Word
