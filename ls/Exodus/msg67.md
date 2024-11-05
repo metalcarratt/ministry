@@ -7,5 +7,8 @@ no ground for man's wisdom, culture or sophistication in the worship of God.
 >
 > young people, do not bring mans work or mans way into the worship of God. to bring in anything of a human source is to insult the very God we worship. if we study the history of religion and the present situation of christianity, we shall see an abundance of mans work and way. but I repeat, God does not allow these things to have any place in his worship.
 
+1Co 1:23
+> But we preach Christ crucified, to Jews a stumbling block, and to Gentiles foolishness,
+
 not uncovering our nakedness:
 > if we remain under christ as our covering when various situations come up or when problems arise and do not exercise our wisdom to deal with them, we shall be covered, and no one will see the shame of our fallen nature.  but the more we exercise our wisdom to make plans and build "steps", the more we shall be exposed. the exposure is shameful and condemned by God.
