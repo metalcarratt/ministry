@@ -95,3 +95,11 @@ The "night" aspect of the law
 - [Message 63](msg63.md) - Being subdued, telling the Lord we cannot do it, receiving the commandments as promises
 - [Message 64](msg64.md) - Being subdued, being infused
 - [Message 65](msg65.md) - Our heart needs to be soft, not hard, when we come to the Word
+
+Supplements to the law - how to worship God
+- [Message 66](msg66.md) - building an altar or earth or unhewn stone; no idols of gold or silver, no stairs
+- [Message 67](msg67.md) - primitive vs cultured, not uncovering our nakedness
+
+Ordinances concerning our relationship with man
+- [Message 68](msg68.md) - to keep the commandments we need the spirit, love and obedience of a slave
+- [Message 65](msg65.md) - the spirit of the ordinances being sweet
