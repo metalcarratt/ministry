@@ -1,12 +1,27 @@
+- [Message 39](msg39.md) - The holy place typifies the old covenant and the holy of holies typifies the new
+- [Message 40](msg40.md) - The incense altar for prayer to enter the Holy of Holies (9:4)
+- [Message 41](msg41.md) - NT is everything God bequethed to us (9:15-17)
+- [Message 42](msg42.md) - two manifestations of Christ and the interval between (end of Heb 9) 
+- [Message 43](msg43.md) - sacrifice for sin (Heb 10)
+
+4th warning - Come forward to the Holy of Holies
+- [Message 44](msg44.md) - Christ cut a new way into the holy of holies (Heb 10:20)
+- [Message 45](msg45.md) - Eternal salvation vs dispensational punishment
+- [Message 46](msg46.md) - Punishment and Reward
+
+The way of faith
+- [Message 47](msg47.md) - Faith
 - [Message 48](msg48.md) - the history of faith
 - [Message 49](msg49.md) - the author of faith
+
+5th warning - run the race, do not fall from grace
 - [Message 50](msg50.md) - need to run on the way to not be distracted
 - [Message 51](msg51.md) - do not compromise in following the way of the new covenant
 - [Message 52](msg52.md) - stay in the holy of holies, don't be severed from Christ
 - [Message 53](msg53.md) - old covenant vs new covenant
 - [Message 54](msg54.md) - the holy nature of God as the focal point of God's economy
 
-The church life
+Virtues for the church life
 - [Message 55](msg55.md) - ten points for the church life
 - [Message 56](msg56.md) - drop every religious practice that distracts us from Christ
 - [Message 57](msg57.md) - within the veil outside the religious camp
