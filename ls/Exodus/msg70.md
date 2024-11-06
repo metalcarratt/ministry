@@ -6,3 +6,8 @@ in fact, the ones who killed him were us, for we were the ones who needed his de
 in order to be redeemed.
 
 the devil is a murderer and the father of lies. if we have murdering and lies in us it is proof that the devil is working in us.
+
+Ex 21:13
+> But if he did not lie in wait for him, but God allowed him to fall by his hand, then I will appoint you a place where he may flee to.
+
+the one killed by mistake was Chirst, put to death by us the sinners. The Lord also prayed, "father, forgive them for they do not know what they are doing." God delivered Him to use by His sovereignty. now we may flee to Christ as our refuge. 
