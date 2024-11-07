@@ -19,3 +19,8 @@ the one killed by mistake was Chirst, put to death by us the sinners. The Lord a
 #### stealing
 > stealing signifying that fallen man is not satisfied with God's sovereign assignment and tries to make base gain by transgressing God's regulation. Perhaps, in His arrangement, God does not assign many riches to you. Instead, He arranges for you to be in poverty. Are you willing to be satisfied with the circumstances in which God has placed you? If you are not satisifed, you may resort to stealing... in itself stealing is not always serious. What is serious with respect to stealing is transgressing God's regulation.
 
+#### coveting
+Rm 7:8
+> But sin, seizing the opportunity through the commandment, worked out in me coveting of every kind; for without the law sin is dead.
+
+Paul personified sin in relation to coveting, showing that coveting comes from Satan as the indwelling sin.
