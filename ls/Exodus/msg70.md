@@ -15,3 +15,7 @@ Ex 21:13
 > But if he did not lie in wait for him, but God allowed him to fall by his hand, then I will appoint you a place where he may flee to.
 
 the one killed by mistake was Chirst, put to death by us the sinners. The Lord also prayed, "father, forgive them for they do not know what they are doing." God delivered Him to use by His sovereignty. now we may flee to Christ as our refuge. 
+
+#### stealing
+> stealing signifying that fallen man is not satisfied with God's sovereign assignment and tries to make base gain by transgressing God's regulation. Perhaps, in His arrangement, God does not assign many riches to you. Instead, He arranges for you to be in poverty. Are you willing to be satisfied with the circumstances in which God has placed you? If you are not satisifed, you may resort to stealing... in itself stealing is not always serious. What is serious with respect to stealing is transgressing God's regulation.
+
