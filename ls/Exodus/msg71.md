@@ -6,4 +6,13 @@ to christ as our redeemer. christ is portrayed as a slave, as one who was slain 
 by us, and as our city of refuge. we also see christ bringing back to us (his enemies)
 that which we had lost, relieving us of our burdens, and being our sabbath rest.
 
+after this we need to see how to experience christ through the ordinances.
+
 need to not to delay to bring the fulness of the harvest and the tears of the grape and oil press to the meetings. the fulness of the harvest is our growth in christ by living in him day by day. the wine press and oil press are the experiecnes of the cross. both of these are for the enjoyment of the saints and the lord, so we should not delay to testify of them in the meetings of the church.
+
+
+the redeemed people should be holy, sanctified unto God, because He slew the firstborn of the Egyptians to bring us our of egypt.
+
+Ex 13:15
+> And when Pharaoh hardened himself against letting us go, Jehovah slew all the firstborn in the land of Egypt, both the firstborn of man and the firstborn of beast. Therefore I am one who sacrifices to Jehovah every male that opens the womb; and all the firstborn of my sons I redeem.
+
