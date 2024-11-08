@@ -16,3 +16,8 @@ the redeemed people should be holy, sanctified unto God, because He slew the fir
 Ex 13:15
 > And when Pharaoh hardened himself against letting us go, Jehovah slew all the firstborn in the land of Egypt, both the firstborn of man and the firstborn of beast. Therefore I am one who sacrifices to Jehovah every male that opens the womb; and all the firstborn of my sons I redeem.
 
+not eating something torn by beasts means to not take in anything of death.
+
+keeping the sabbath day being to bring others (the ox, the son of the maidservant, the stranger) into rest. keeping the sabbath year to feed others (the poor).
+
+three feasts. the feast of unleavened leavened bread signifies christ as the sinless one. the feast of harvest (pentecost) sigifies the resurrected christ who became the life giving spirit. the feast of ingathering (tabernacles) signifies the enjoyment of the father in the new jerusalem. thus the feasts bring us from christ to the spirit to the father.
