@@ -11,3 +11,8 @@ the good land is the ultimate type of the all inclusive christ. the borders of t
 furthermore there are many tribes in the land, and these tribes have idols and behind the idols are demons. the demons are spiritual forces preventing us from enjoying the riches of the good land christ.
 
 > as Christians we experienced losing our temper even when we did not want to do so. there was something, some kind of force, which caused us to lose our temper involuntarily. this indicates that the aspects of our natural life are utilized, manipulated, and directed by spiritual forces behind the scene. the aspects of the natural life with the spiritual forces behind them frustrate us from the enjoyment of the riches of the all-inclusive Christ.
+
+the way to deal with the tribes of the land:
+
+Ex 23:22
+> But if you will indeed listen to His voice and do all that I speak, then I will be an enemy to your enemies and an adversary to your adversaries.
