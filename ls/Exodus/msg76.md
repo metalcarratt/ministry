@@ -6,3 +6,5 @@ he enacted it.
 the enactment of the covenant was through an altar, to redeem those who could not keep the law, and replace them with Christ as the offering; and through twelve pillars as a testimony of the law, showing that the pupose of the covenant is not to make us law keepers but a testimony of God.
 
 > again and again I wish to emphasize this crucial point: the law was not given for us to keep, for us to observe; it was given that we might be made a living testimony of God according to what the law portrays. the way for us to become a living testimony is to be redeemed, terminated, and replaced. this can be accomplished only by christ through the cross.
+
+> God has no intention to make us law keepers, observers of the law. God's intention is to make us pillars which stand on earth as a reflection of Himself as the divine Person, who is holy, righteous, and full of love and light. This is not to keep the law--it is to be a living testimony of what God is, as portrayed by the law.
