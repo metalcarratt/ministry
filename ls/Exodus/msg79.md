@@ -21,4 +21,4 @@ through the blood:
 - we serve the living god (heb 9:14)
 - we are brought into the temple to enjoy god for eternity (rev 7:15-16)
 
-> the blood of the covenant is not mainly for forgiveness; it is primatily for God to be our portion.
+> the blood of the covenant is not mainly for forgiveness; it is primarily for God to be our portion. God has ordained and predestinated us to enjoy Him. This enjoyment has also been covenanted to us. What enacted this covenant? It was enacted by the blood of Jesus Christ, the blood which brings us into all the divine blessings.
