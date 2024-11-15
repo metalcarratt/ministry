@@ -22,3 +22,17 @@ through the blood:
 - we are brought into the temple to enjoy god for eternity (rev 7:15-16)
 
 > the blood of the covenant is not mainly for forgiveness; it is primarily for God to be our portion. God has ordained and predestinated us to enjoy Him. This enjoyment has also been covenanted to us. What enacted this covenant? It was enacted by the blood of Jesus Christ, the blood which brings us into all the divine blessings.
+
+#### Verses
+
+Rv 22:14
+> Blessed are those who *wash their robes* that they may have *right to the tree of life* and may enter by the gates into the city.
+
+Rv 7:14b, 15, 17
+> and they have *washed their robes* and made them white *in the blood of the Lamb*. Because of this they are *before the throne of God* and *serve Him day and night in His temple*; and He who sits upon the throne will tabernacle over them. ... For the Lamb who is in the midst of the throne will shepherd them and guide them to *springs of waters of life*;
+
+He 10:19-20
+> Having therefore, brothers, boldness for *entering the Holy of Holies in the blood of Jesus*, Which entrance He initiated for us as a new and living way through the veil, that is, His flesh,
+
+He 9:14
+> How much more will *the blood of Christ*, who through the eternal Spirit offered Himself without blemish to God, purify our conscience from dead works *to serve the living God*?
