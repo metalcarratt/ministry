@@ -22,3 +22,10 @@ acacia wood shows christs humanity is not weak like cotton, but strong in charac
 oil is the spirit of christ which we need to be saturated with.
 
 spices signify christs death and resurrection as the antibiotic to kill all the spritual germs.
+
+#### goats hair, lambs skin dyed red, porpoise skin
+goats hair signifies christ being made sin for us, the sinners (goats)
+
+ram is christ who died for us
+
+porpoise skin is the strength of christ to endure suffering, injury, and difficukty, to protect cover us from attacks, troubles, trials and sufferings.
