@@ -15,3 +15,10 @@ the transforming work of the spirit based on the redemption of christ (onyx ston
 blue - heavenly, purple - royal, scarlet - redemption.
 
 having a heavenly character, a dignified behaviour, and a humble attitude. 
+
+#### acacia wood, oil, spices
+acacia wood shows christs humanity is not weak like cotton, but strong in character and standing.
+
+oil is the spirit of christ which we need to be saturated with.
+
+spices signify christs death and resurrection as the antibiotic to kill all the spritual germs.
