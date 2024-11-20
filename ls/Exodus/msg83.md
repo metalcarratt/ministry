@@ -10,3 +10,8 @@ the means and place where we are tested by God.
 
 #### onyx and other precious stones
 the transforming work of the spirit based on the redemption of christ (onyx stone is red). for example our love may be natural, which God will not accept. we need a love transformed by the spirit to offer to God for His building.
+
+#### linen
+blue - heavenly, purple - royal, scarlet - redemption.
+
+having a heavenly character, a dignified behaviour, and a humble attitude. 
