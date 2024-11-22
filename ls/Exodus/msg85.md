@@ -14,6 +14,9 @@ to be a witness it to carry christ as the testimony. we must become a testimony 
 
 we may hav3 the truth, the preaching of the gospel and correct meetings, but if we dont daily experience the cross to have thw eternal spirit cast in our experience we wont have christ as the testimony. then we will be like the tabernacle without the ark, without the testimony.
 
+the proper way to move the ark was by being carried by huamnity, not pulled by an ox. this shows we must be one with the lord, joined and connected to him.
+
+the bars could never leave the rings, showing we must always be ready to move for the lord.
 poles made of acacia wood overlaid with gold - need the highest humanity, character and standing to spread the lords testimony throughout the earth.
 two sides, two rings each side, two bars, two to carry each side. all signify the need for coordination with others to bear the testimony of the lord.
 the four rings signify the testimony going out to the four corners of the earth.
