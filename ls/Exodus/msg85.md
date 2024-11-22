@@ -7,4 +7,7 @@ the rings of pure gold signify the eternal Spirit. however this gold was cast in
 
 (according to google to cast gold, first need to create a mould, which involves firing in a kiln, then need to heat the gold to a liquid, pour into the mould to make shape, cool it and then rinse in water)
 
-a ts 1:8, "you shall be my witnesses unto the uttermost parts of the earth." to be a witness it to carry christ as the testimony. we must become a testimony of christ in our daily living. 
+Ac 1:8
+> But you shall receive power when the Holy Spirit comes upon you, and you shall be My witnesses both in Jerusalem and in all Judea and Samaria and unto the uttermost part of the earth.
+
+to be a witness it to carry christ as the testimony. we must become a testimony of christ in our daily living. 
