@@ -11,3 +11,5 @@ Ac 1:8
 > But you shall receive power when the Holy Spirit comes upon you, and you shall be My witnesses both in Jerusalem and in all Judea and Samaria and unto the uttermost part of the earth.
 
 to be a witness it to carry christ as the testimony. we must become a testimony of christ in our daily living. 
+
+we may hav3 the truth, the preaching of the gospel and correct meetings, but if we dont daily experience the cross to have thw eternal spirit cast in our experience we wont have christ as the testimony. then we will be like the tabernacle without the ark, without the testimony.
