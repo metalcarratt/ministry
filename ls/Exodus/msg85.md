@@ -14,4 +14,5 @@ to be a witness it to carry christ as the testimony. we must become a testimony 
 
 we may hav3 the truth, the preaching of the gospel and correct meetings, but if we dont daily experience the cross to have thw eternal spirit cast in our experience we wont have christ as the testimony. then we will be like the tabernacle without the ark, without the testimony.
 
+two sides, two rings each side, two bars, two to carry each side. all signify the need for coordination with others to bear the testimony of the lord.
 the four rings signify the testimony going out to the four corners of the earth.
