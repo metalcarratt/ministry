@@ -102,4 +102,12 @@ Supplements to the law - how to worship God
 
 Ordinances concerning our relationship with man
 - [Message 68](msg68.md) - to keep the commandments we need the spirit, love and obedience of a slave
-- [Message 65](msg65.md) - the spirit of the ordinances being sweet
+- [Message 69](msg69.md) - the spirit of the ordinances being sweet
+- [Message 70](msg70.md) - killing my mistake, stealing, coveting
+- [Message 71](msg71.md) - Christ restoring our possessions, being our place of refuge, not taking in anything of death, keeping the sabbath, keeping the feasts
+- [Message 72] - ?
+
+The Angel of Jehovah bringing us into the all-inclusive Christ as the good land
+- [Message 73](msg73.md) - The Angel of Jehovah sent to bring the children of Israel into the good land
+- [Message 74](msg74.md) - The frustrations to entering the land - disobedience, not cooperation, not growing
+- [Message 75](msg75.md) - How to deal with the pagan tribes (our natural life) in us
