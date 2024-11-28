@@ -5,3 +5,4 @@ and below the standard.
 
 > our enjoyment of christ through the word must be very high. no place should be given to any gimmicks which lower the standard.
 
+a frame roundabout is for strenghtening. when we eat christ we shouod be strengthened.
