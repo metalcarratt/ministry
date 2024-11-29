@@ -8,3 +8,5 @@ and as light he comes out of life. experientially, it is after enjoying him as t
 bread of the presence that we enjoy him as the light of life. as with the table of
 the presence, this can only be enjoyed in the church, by those who are built up
 with others.
+
+the lampstand being of pure gold means that christ being tbe light of life is purely a matter of his divinity.
