@@ -10,3 +10,5 @@ the presence, this can only be enjoyed in the church, by those who are built up
 with others.
 
 the lampstand being of pure gold means that christ being tbe light of life is purely a matter of his divinity.
+
+since aarons rod bodded with almonds the almond blossom signifies resurrection. it is also the first flower to blossom. signifying the firstfruits of resurrection. the light of life comes only in the divinity of God and in the resurrection life.
