@@ -7,3 +7,5 @@ there are three types of light. in the outer court is the natural light. in the 
 is the lampstand and in the holy of holies is gods glory. the lampstand is a light in
 the tabernacle, in the church. outside the church is only natural light, not christ as the light 
 of life.
+
+when we come into thw holy place we enjoy life and snuff out the charred wicks (deal with the natural life) and eventually come to enjoy resurrection life at the golden incense altar.
