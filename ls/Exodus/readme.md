@@ -115,3 +115,22 @@ The Angel of Jehovah bringing us into the all-inclusive Christ as the good land
 The enactment of the covenant
 - [Message 76](msg76.md) - through an altar
 - [Message 77](msg77.md) - the new covenant promised in Jeremiah; not making up our mind but beseeching the Lord's mercy
+- [Message 78](msg78.md) - the blood of the covenant and pillars testifying for God
+- [Message 79](msg79.md) - the blood of the covenant
+- [Message 80](msg80.md) - Different levels of closeness to God
+
+The building of the tabernacle
+- [Message 81](msg81.md) - The materials for the building - animal, plant and mineral
+- [Message 82](msg82.md) - Bringing our experiences as a heave offering to the church
+- [Message 83](msg83.md) - significance of the materials - silver, bronze, onyx, linen, acacia wood, oil, spices, goat's hair, lambs skin dyed red, porpoise skin
+
+The ark of the testimony
+- [Message 84](msg84.md) - Christ as the center of the church
+- [Message 85](msg85.md) - the rim of gold (the holding divine glory) and the rings and bars (for the move of the testimony throughout the earth)
+- [Message 86](msg86.md) - the propitiation place
+- [Message 87](msg87.md) - The ark with the propitiation cover as a crown of glory being a picture of the Christ who is in our spirit
+- [Message 88](msg88.md) - Enjoying Christ as the ark through the life, blood, fellowship and glory
+- [Message 89](msg89.md) - The blood, the cherubim, and the controlling vision imparted by the divine glory
+
+The showbread table
+- [Message 90](msg90.md) - according to experience the table follows the the ark; the bread was eaten in the tabernacle, that is, in the church of the build-up saints
