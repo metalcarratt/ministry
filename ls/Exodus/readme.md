@@ -111,3 +111,7 @@ The Angel of Jehovah bringing us into the all-inclusive Christ as the good land
 - [Message 73](msg73.md) - The Angel of Jehovah sent to bring the children of Israel into the good land
 - [Message 74](msg74.md) - The frustrations to entering the land - disobedience, not cooperation, not growing
 - [Message 75](msg75.md) - How to deal with the pagan tribes (our natural life) in us
+
+The enactment of the covenant
+- [Message 76](msg76.md) - through an altar
+- [Message 77](msg77.md) - the new covenant promised in Jeremiah; not making up our mind but beseeching the Lord's mercy
