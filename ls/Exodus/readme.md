@@ -1,4 +1,7 @@
 # Lifestudy of Exodus
+
+## God's salvation
+
 Intro:
 - [Message 01](msg01.md) - The experience of a believer: redemption, being cared for, corporate expression
 
@@ -76,6 +79,8 @@ The war against Amalek (the flesh)
 A picture of the kingdom
 - [Message 49](msg49.md) - Jethro a type of the gentiles turning to the church, Zipporah a type of the church coming out of the world to be married to the Lord
 
+## The revelation of the law
+
 The "day" aspect of the law - the giving of the law as an engagement contract in an atmosphere of love
 - [Message 50](msg50.md) - The first time Israel enjoyed God's presence and heard His direct speaking
 - [Message 51](msg51.md) - The law reveals what kind of Person God is
@@ -118,6 +123,8 @@ The enactment of the covenant
 - [Message 78](msg78.md) - the blood of the covenant and pillars testifying for God
 - [Message 79](msg79.md) - the blood of the covenant
 - [Message 80](msg80.md) - Different levels of closeness to God
+
+## The revelation of the building
 
 The building of the tabernacle
 - [Message 81](msg81.md) - The materials for the building - animal, plant and mineral
