@@ -134,3 +134,16 @@ The ark of the testimony
 
 The showbread table
 - [Message 90](msg90.md) - according to experience the table follows the the ark; the bread was eaten in the tabernacle, that is, in the church of the build-up saints
+- [Message 91](msg91.md) - up to the standard of the ark, coming out of the ark
+
+The lampstand
+- [Message 92](msg92.md) - a picture of the Triune God; almonds a matter of resurrection
+- [Message 93](msg93.md) - a tree, the need to trim the wicks
+- [Message 94](msg94.md) - three types of light
+
+The covering of the tent
+- [Message 95](msg95.md) - The curtains signify Christ's perfect humanity
+- [Message 96](msg96.md) - Goat's hair, lamb's skin died red, pospoise skin - for the passing over of God's judgement, and for protecting from the enemy
+
+The standing boards
+- [Message 97](msg97.md) - Acacia wood overload with gold; half units needing to be matched
