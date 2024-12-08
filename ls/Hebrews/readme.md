@@ -1,3 +1,15 @@
+- [Message 01](msg01.md) - a Hebrew is a river crosser
+- [Message 02](msg02.md) - God's speaking, which brings in blessing, transfusion, light, life and power
+
+Superior to the angels
+- [Message 03](msg03.md) - Christ the effulgence of God's glory, the impress of His substance, creating, upholding and inheriting all things, purifying our sins, sitting at His right hand
+- [Message 04](msg04.md) - Comparison between Judaism and the Son of God
+- [Message 05](msg05.md) - Christ is God's heir and we are joint heirs with Him
+- 
+
+...
+
+
 - [Message 39](msg39.md) - The holy place typifies the old covenant and the holy of holies typifies the new
 - [Message 40](msg40.md) - The incense altar for prayer to enter the Holy of Holies (9:4)
 - [Message 41](msg41.md) - NT is everything God bequethed to us (9:15-17)
