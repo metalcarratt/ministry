@@ -8,3 +8,5 @@ the veil was made of the same material as the cover, so it signifies christ.
  the vei separated man from god b3cause man is flesh. it is not until the flesh is rent that man can come to god. 
 
  > this illustrates the fact that god will not see us and have fellowship with us or speak with us face to face until our flesh is broken. god loves us and he will supply us with his riches. nevertheless, until our flesh is broken he will not speak to us from the ark. there is a veil separating us, and this veil is the flesh, our fallen being.
+>
+> the problem of the flesh, our fallen being, is different from the problem of our sins. this is a matter of our being, of our person. our sins have been forgiven, but we ourselves remain a problem. even though our sins have been washed away, we are still with the flesh, and the flesh may be unbroken. this unbroken flesh is the veil.
