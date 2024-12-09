@@ -5,7 +5,25 @@ Superior to the angels
 - [Message 03](msg03.md) - Christ the effulgence of God's glory, the impress of His substance, creating, upholding and inheriting all things, purifying our sins, sitting at His right hand
 - [Message 04](msg04.md) - Comparison between Judaism and the Son of God
 - [Message 05](msg05.md) - Christ is God's heir and we are joint heirs with Him
-- 
+- [Message 06](msg06.md) - Christ is God, the Son of Man, the Captain, our High Priest
+- [Message 07](msg07.md) - In His physical body Christ became lower than the angels but inwardly He was much higher. We are the same
+- [Message 08](msg08.md) - Incarnation, death, crucifixion, resurrection, glorification and exaltation revelated in Heb. 2
+- [Message 09](msg09.md) - Christ is the captain of our salvation, leading us through sufferings into glory
+- [Message 10](msg10.md) - Glory is our goal, and Christ has entered within the veil to remove every separation from the glory of God
+- [Message 11](msg11.md) - Sanctification involving a change in our nature
+- [Message 12](msg12.md) - The church is the composition of the brothers of the firstborn Son of God (2:12)
+- [Message 13](msg13.md) - A merciful and faithful High Priest (2:17)
+
+Superior to Moses
+- [Message 14](msg14.md) - We are holy brothers (3:1)
+- [Message 15](msg15.md) - Superior as an apostle (3:1)
+
+Warning not to come short of the promised rest
+- [Message 16](msg16.md) - Being partners with our apostle Christ (3:14)
+- [Message 17](msg17.md) - Christ is our good land, resurrected out of death waters (4:1?)
+- [Message 18](msg18.md) - The Sabbath rest, where God has attained what He desires, a man who expresses Him (4:9)
+- [Message 19](msg19.md) - Three stages of the sabbath rest (Isreal, Jesus, God's house)
+- [Message 20](msg20.md) - Our sabbath rest is a growing unto the sabbath of maturity
 
 ...
 
