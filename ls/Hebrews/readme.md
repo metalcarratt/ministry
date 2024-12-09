@@ -1,16 +1,18 @@
 - [Message 01](msg01.md) - a Hebrew is a river crosser
-- [Message 02](msg02.md) - God's speaking, which brings in blessing, transfusion, light, life and power
+- [Message 02](msg02.md) - God's speaking, which brings in blessing, transfusion, light, life and power (1:1)
 
 Superior to the angels
-- [Message 03](msg03.md) - Christ the effulgence of God's glory, the impress of His substance, creating, upholding and inheriting all things, purifying our sins, sitting at His right hand
+- [Message 03](msg03.md) - Christ the effulgence of God's glory, the impress of His substance, creating, upholding and inheriting all things, purifying our sins, sitting at His right hand (1:3)
 - [Message 04](msg04.md) - Comparison between Judaism and the Son of God
-- [Message 05](msg05.md) - Christ is God's heir and we are joint heirs with Him
-- [Message 06](msg06.md) - Christ is God, the Son of Man, the Captain, our High Priest
-- [Message 07](msg07.md) - In His physical body Christ became lower than the angels but inwardly He was much higher. We are the same
+- [Message 05](msg05.md) - Christ is God's heir and we are joint heirs with Him (1:2)
+
+Warning to give heed to the Son
+- [Message 06](msg06.md) - Christ is God, the Son of Man, the Captain, our High Priest (2:6)
+- [Message 07](msg07.md) - In His physical body Christ became lower than the angels but inwardly He was much higher. We are the same (2:9)
 - [Message 08](msg08.md) - Incarnation, death, crucifixion, resurrection, glorification and exaltation revelated in Heb. 2
-- [Message 09](msg09.md) - Christ is the captain of our salvation, leading us through sufferings into glory
-- [Message 10](msg10.md) - Glory is our goal, and Christ has entered within the veil to remove every separation from the glory of God
-- [Message 11](msg11.md) - Sanctification involving a change in our nature
+- [Message 09](msg09.md) - Christ is the captain of our salvation, leading us through sufferings into glory (2:11)
+- [Message 10](msg10.md) - Glory is our goal, and Christ has entered within the veil to remove every separation from the glory of God (2:11)
+- [Message 11](msg11.md) - Sanctification involving a change in our nature (2:11)
 - [Message 12](msg12.md) - The church is the composition of the brothers of the firstborn Son of God (2:12)
 - [Message 13](msg13.md) - A merciful and faithful High Priest (2:17)
 
