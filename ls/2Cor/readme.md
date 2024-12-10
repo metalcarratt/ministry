@@ -1,11 +1,11 @@
 # Life-Study of 2 Corinthians
 
-## Introduction
-- 1:1-11 [Message 1 - Father of compassions and God of all comfort](msg01.md)
-- 1:12-14 [Message 2 - singleness](msg02.md)
-- 1:15-22 [Message 3 - a pattern](msg03.md)
-- 1:24-2:11 [Message 4 - a pattern](msg04.md)
+Introduction
+- [Message 01](msg01.md) - 2 Cor deals with ministry after being brought through sufferings into resurrecction (1:1-11) 
+- [Message 02](msg02.md) - Being unable to deal with the situation without resurrection life made the apostles single, simple (1:12-14)
+- [Message 03](msg03.md) - Paul one with the faithful God and unchanging Christ (1:15-22)
+- [Message 04](msg04.md) - Paul conducted himself in the person of Christ (1:24-2:11)
 
-## The ministry
-- 2:12-17 [Message 5 - ministry](msg05.md)
-- 3:1-6 [Message 6 - ministry](msg06.md)
+The ministry
+- [Message 05](msg05.md) - Gift comes easy but ministry takes time; Paul chose the feeling in his spirit over the outward situation; the NT ministry is a procession (2:12-17)
+- [Message 06](msg06.md) - Paul's ministry was a writing of a letter of Christ into the believers' hearts (3:1-6)
