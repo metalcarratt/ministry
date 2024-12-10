@@ -9,3 +9,7 @@ Introduction
 The ministry
 - [Message 05](msg05.md) - Gift comes easy but ministry takes time; Paul chose the feeling in his spirit over the outward situation; the NT ministry is a procession (2:12-17)
 - [Message 06](msg06.md) - Paul's ministry was a writing of a letter of Christ into the believers' hearts (3:1-6)
+- [Message 07](msg07.md) - The glory of the new covenant first saturates us and then shines out from within us (3:7-11)
+
+The ministers
+- [Message 08](msg08.md) - The veil taken away; the Lord is the Spirit; transformation into the same image (3:12-18)
