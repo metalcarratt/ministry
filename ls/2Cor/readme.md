@@ -13,3 +13,7 @@ The ministry
 
 The ministers
 - [Message 08](msg08.md) - The veil taken away; the Lord is the Spirit; transformation into the same image (3:12-18)
+- [Message 09](msg09.md) - God shining into our hearts through our beholding the Lord's face (4:1-6)
+- [Message 10](msg10.md) - Need to walk by faith while under the daily killing in the perplexing environments (4:7-18)
+- [Message 11](msg11.md) - Ministry comes from being a grain falling into the ground and dying (4:16-18)
+- [Message 12](msg12.md) - Building and clothing as pictures of rapture and glorification (5:1-8)
