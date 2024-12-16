@@ -17,3 +17,9 @@ The ministers
 - [Message 10](msg10.md) - Need to walk by faith while under the daily killing in the perplexing environments (4:7-18)
 - [Message 11](msg11.md) - Ministry comes from being a grain falling into the ground and dying (4:16-18)
 - [Message 12](msg12.md) - Building and clothing as pictures of rapture and glorification (5:1-8)
+- [Message 13](msg13.md) - 'earthly tabernacle' showing that we are God's house for Him to dwell in (5:9-15?)
+- [Message 14](msg14.md) - ministry of reconciliation to bring the believers into the holy of holies within the veil (5:15-21)
+
+A pattern of living Christ for the church life
+- [Message 15](msg15.md) - Paul as a pattern
+- [Message 16](msg16.md) - Paul's personal testimony of the God of resurrection
