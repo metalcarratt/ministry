@@ -22,10 +22,14 @@ The ministers
 
 A pattern of living Christ for the church life
 - [Message 15](msg15.md) - Paul as a pattern
-- [Message 16](msg16.md) - Confidence in the God of resurrection (1:9), conducting in singleness (1:12), in the grace (1:16), one with the unchanging God (1:18)
-- [Message 17](msg17.md) - Attached and anointed (1:21), sealed (1:22), led captive, subdued (2:14)
+- [Message 16](msg16.md) - Confidence in the God of resurrection (1:9), conduct in singleness (1:12), in the grace (1:16), one with the unchanging God (1:18)
+- [Message 17](msg17.md) - Attached and anointed (1:21), sealed (1:22), led captive and subdued (2:14)
 - [Message 18](msg18.md) - Be subdued (2:14)
 - [Message 19](msg19.md) - Letters of Christ (3:3)
 - [Message 20](msg20.md) - Inscribing Christ (3:3)
 - [Message 21](msg21.md) - The glory of the new covenant (3:8), "The Spirit" (3:6)
 - [Message 22](msg22.md) - Glory is God expressed, shining through us (3:18)
+- [Message 23](msg23.md) - Transformation from the Lord Spirit to the Lord Spirit (3:18)
+- [Message 24](msg24.md) - Beholding and reflecting with an unveiled face (3:18)
+- [Message 25](msg25.md) - The Spirit is the essence of the new covenant ministry (3:6)
+- [Message 26](msg26.md) - The many ministries are to carry out the work of the unique ministry (3:6)
