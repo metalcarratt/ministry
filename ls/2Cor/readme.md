@@ -22,4 +22,10 @@ The ministers
 
 A pattern of living Christ for the church life
 - [Message 15](msg15.md) - Paul as a pattern
-- [Message 16](msg16.md) - Paul's personal testimony of the God of resurrection
+- [Message 16](msg16.md) - Confidence in the God of resurrection (1:9), conducting in singleness (1:12), in the grace (1:16), one with the unchanging God (1:18)
+- [Message 17](msg17.md) - Attached and anointed (1:21), sealed (1:22), led captive, subdued (2:14)
+- [Message 18](msg18.md) - Be subdued (2:14)
+- [Message 19](msg19.md) - Letters of Christ (3:3)
+- [Message 20](msg20.md) - Inscribing Christ (3:3)
+- [Message 21](msg21.md) - The glory of the new covenant (3:8), "The Spirit" (3:6)
+- [Message 22](msg22.md) - Glory is God expressed, shining through us (3:18)
