@@ -52,4 +52,4 @@ The ministers (II)
 - [Message 41](msg41.md) - Others saw the apostles in negative things (evil report, deceiver) but the inward reality was truth, living, etc.
 - [Message 42](msg42.md) - Further reconciliation, receiving grace daily, having an enlarged heart
 - [Message 43](msg43.md) - Not being dissimilarly yoked with unbelievers (6:14-7:1)
-- 
+- [Message 44](msg44.md) - Need a ministering life to be fruitful, which involves intimate concern (7:2-16)
