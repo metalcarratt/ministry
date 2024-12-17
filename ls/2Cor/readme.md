@@ -47,3 +47,9 @@ A pattern of living Christ for the church life
 - [Message 38](msg38.md) - The mingling of divinity with humanity (3:18)
 
 The ministers (II)
+- [Message 39](msg39.md) - An all-fitting life (6:1-13)
+- [Message 40](msg40.md) - Details of the all-fitting life: long-suffering
+- [Message 41](msg41.md) - Others saw the apostles in negative things (evil report, deceiver) but the inward reality was truth, living, etc.
+- [Message 42](msg42.md) - Further reconciliation, receiving grace daily, having an enlarged heart
+- [Message 43](msg43.md) - Not being dissimilarly yoked with unbelievers (6:14-7:1)
+- 
