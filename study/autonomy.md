@@ -1,3 +1,15 @@
+
+The Organic Union in God's Relationship with Man
+CWWL, 1993, vol. 2
+
+> In the recent rebellion in the Lord’s recovery, a teaching was promoted which said that all the local churches are autonomous. Immediately, I recognized this as the wrong teaching of G. H. Lang, a teacher who was once among the Brethren. In correcting this wrong teaching, I posed the question: “Can any part of our body be autonomous? Can the arm say that it is autonomous from the rest of the body?” The obvious answer is no. Any member of our body that decides to become autonomous will die. The members of the body are not autonomous. 
+>
+>  Apparently, growth is for individual believers and building is corporate. Actually, both growth and building are corporate. The feet do not grow at one time, and the hands at a later time, as if the two were autonomous. The entire body grows together as a corporate entity. Therefore, the teaching concerning autonomy is nonsensical. Many years ago we discarded this teaching. There is no such thing as autonomy in the Body. Some in the recent rebellion taught autonomy in order to keep others away. They said, “Don’t come to our place to bother us. We are a local church. We have our own jurisdiction. No one has any right to touch us.” If this is true, where is the Body? 
+>
+>  The Lord has made it clear to us that the building is the growth. Yes, growth is for the building, but building and growth are not two different things. As human beings, if we do not grow, we can never build ourselves up. In order to be built up, we need to grow every day and even every moment. It seems that this growth is so slow that we cannot tell any difference from day to day. However, after fifteen years, a small babe is built up to be a strong young man. This takes place not by addition but by growth. 
+>
+> Few Christians today know what the genuine building is. Therefore, it is easy to understand why, on the earth today, there is very little building among the children of God. In order to realize what building is, we must look at our physical body. Not one member of our body is separate. All the members stay together and grow together as a complete body.
+
 Southern California Elders' and Co-workers' Meetings
 CWWL, 1993, vol. 1
 
