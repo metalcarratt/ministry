@@ -65,3 +65,8 @@ Paul's apostolic authority
 - [Message 50](msg50.md) - Entreating in meekness, proper boldness, fighting spiritual warfare (10:1-6)
 - [Message 51](msg51.md) - Living within the measure apportioned by God (10:7-18)
 - [Message 52](msg52.md) - There are many things opposing the Lord's recovery, but the ministry stirs up our love for the Lord (11:1-15)
+- [Message 53](msg53.md) - Discernment by the principle of life and death
+- [Message 54](msg54.md) - True ministers suffer hardships; 30 items that describe Paul's weaknesses (11:16-33)
+- [Message 55](msg55.md) - Paul was "cooked" to experience Christ through the wonderful visions, the thorns, and the supplying grace and overshadowing power (12:1-10)
+- [Message 56](msg56.md) - The Corinthians should have commended Paul but didn't; Paul's frank vindication was performing surgery on them (12:11-18)
+- [Message 57](msg57.md) - Paul built up the saints by repairing his apostolic relationship wih them so that they wouldn't be deprived (12:19-21)
