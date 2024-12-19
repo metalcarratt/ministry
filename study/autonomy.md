@@ -1,4 +1,27 @@
 
+
+The Practical Points concerning Blending
+CWWL, 1994–1997, vol. 1
+Chapter 3 - The significance of the blending
+
+> When Brother Nee was raised up by the Lord, he saw the light that the local churches are needed for the Lord to take the procedure to go on to reach His goal in His economy. So he stressed the local churches very much. For seventy-two years we have all followed this revelation. We have stressed the local churches again and again. 
+>
+>  Recently, among us there has been a kind of rebellion since 1987. One of the leading ones in this rebellion picked up the wrong teaching of G. H. Lang in his book The Churches of God. In this book Lang stressed the autonomy of each local church. This was an old wrong teaching by the Brethren. We knew this already. Yes, we do stress the local churches, but we do not stand for the autonomy of the local churches. 
+>
+>  The one church is expressed in the local churches because of physical reasons. We believers are scattered on this earth, so we cannot be in one location. We have to be in many locations, so in a sense, we have to be separated by localities. But we cannot forget that the churches are the Body of Christ. Ephesians 4 says that there is one Body (v. 4). Paul says that though we are many, we are still one bread and one Body (1 Cor. 10:17). 
+>
+>  The parts of our physical body cannot be autonomous. Is it possible that the shoulder is one autonomy, the nose is another autonomy, and the two feet are two other autonomies? If this is so, then our body becomes a divided carcass. In the same way, Christ’s Body is an organic unity, and no part of His Body can be autonomous. 
+>
+>  The British Brethren stressed very much that the seven local churches in Asia, spoken of in Revelation 2 and 3, were different, independent, and autonomous. Some even said that there is not only the local church but also the local Body. That would mean that Christ has thousands of “Bodies.” Based upon the wrong teaching of the Brethren, some dissenting ones said that in Revelation 2 and 3 the seven churches are different, so seven different epistles were written to them respectively. This seems reasonable, but we need to see that in Revelation 2 and 3 the seven churches are different on the negative side. They are different in their failures, mistakes, sinful things, and wrongdoings. 
+>
+>  In Revelation 1 the Lord showed us seven lampstands, which are the signs of seven churches. These seven lampstands are all identical in nature, in essence, in size, in type, in appearance, in color, and in function. No one could discern which lampstand is which unless you put a label on each one of them. How could you say that these seven local churches are different? The Lord rebuked them for all their differences. Yes, the Lord did write epistles to each of them respectively. But He bound these epistles together to make a total epistle, an aggregate epistle. 
+>
+>  In the whole book of Revelation the Lord showed us that the overcomers are not of different groups. The overcomers always are one unique group. The dead overcomers are signified by the man-child in Revelation 12, and the living overcomers are signified by the firstfruits, the one hundred forty-four thousand standing on Mount Zion, in Revelation 14. These are not different groups of overcomers but one unique group. 
+>
+>  Not only so, eventually, the book of Revelation does have a consummation. In this consummation all the seven lampstands disappear. In the first chapter we see the seven lampstands. But in the last two chapters we see only one city. Eventually, the local churches will be over. Only the Body will remain and remain forever, and this Body of Christ is the unique tabernacle as God’s dwelling place on this earth, the unique bride of the Lamb (21:2-3). We all have to see this. 
+>
+>  Therefore, we must pay much more attention to the Body of Christ than to the local churches. This does not mean that I annul the teaching of the local churches. We still need it. As a person, we have a physical frame. That is our body. But a body by itself is a carcass. A physical body needs an inner life. Today the church is the same. On the one hand, it does have a frame, a body, but this frame is not the nature, the essence, or the element of the church. Ephesians 4 tells us the church is the Body, and within this church is the  Spirit, the Lord, and the Father (vv. 4-6). The Father is the source, the Lord is the element, and the Spirit is the essence of the Body. These four entities are built together.
+
 The Organic Union in God's Relationship with Man
 CWWL, 1993, vol. 2
 
