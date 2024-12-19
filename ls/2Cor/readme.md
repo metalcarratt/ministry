@@ -69,4 +69,9 @@ Paul's apostolic authority
 - [Message 54](msg54.md) - True ministers suffer hardships; 30 items that describe Paul's weaknesses (11:16-33)
 - [Message 55](msg55.md) - Paul was "cooked" to experience Christ through the wonderful visions, the thorns, and the supplying grace and overshadowing power (12:1-10)
 - [Message 56](msg56.md) - The Corinthians should have commended Paul but didn't; Paul's frank vindication was performing surgery on them (12:11-18)
-- [Message 57](msg57.md) - Paul built up the saints by repairing his apostolic relationship wih them so that they wouldn't be deprived (12:19-21)
+- [Message 57](msg57.md) - Paul built up the saints by repairing his apostolic relationship wih them so that they wouldn't be deprived (12:19-13:10)
+- [Message 58](msg58.md) - rejoice, be perfected, think the same thing, blessing (13:11-14)
+- [Message 59](msg59.md) - The Triune God (13:14)
+
+
+  
