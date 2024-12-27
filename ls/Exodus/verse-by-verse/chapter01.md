@@ -23,10 +23,11 @@ The occupation with improving their living kept them from fulfilling the purpose
 
 > **7** But the children of Israel were fruitful and increased abundantly and multiplied and grew exceedingly strong, and the land was filled with them.
 - The childen of Israel became "strong", meaning rich. This shows their preoccupation with material riches.
-\\
+
 
 > **8** And a new king rose up over Egypt, who did not know of Joseph.
 - Pharoah is a type of Satan
+
 
 > **9** And he said to his people, The people of the children of Israel are now more numerous and stronger than we.
 >
