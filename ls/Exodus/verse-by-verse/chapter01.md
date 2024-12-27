@@ -53,18 +53,27 @@ brick and mortar are the same materials used at Babel to make a name for themsel
 
 ## 15-22 Killing the males and keeping the females
 
-> **15** And the king of Egypt spoke to the Hebrew midwives, one whose name was Shiphrah and the other whose name was Puah;
+> **15** And the king of Egypt spoke to the Hebrew **midwives**, one whose name was Shiphrah and the other whose name was Puah;
 >
-> **16** And he said, When you act as midwives for the Hebrew women and see them on the birthstool, if it is a son, then you shall put him to death; but if it is a daughter, then she shall live.
+> **16** And he said, When you act as midwives for the Hebrew women and see them on the birthstool, if it is a **son**, then you shall put him to death; but if it is a **daughter**, then she shall live.
+
+- The male life is for God's purpose, the female life is for man's pleasure. Satan is doing the same thing today: killing the life for God's purpose and preserving the life for man's pleasure.
+- Satan tried to use the female life (the midwives) to kill the male life.
+
 >
-> **17** But the midwives feared God and did not do as the king of Egypt had commanded them but let the male children live.
->
+> **17** But **the midwives feared God** and did not do as the king of Egypt had commanded them but **let the male children live**.
+
+- It is easy for the sisters to be used by the enemy, but it is also easy for them to be used by God. Whether the church will be deadened or delivered depends on the sisters.
+- In a time of glory Satan comes in to usurp the females to damage the situation, but in a time of degredation, God comes to use the female life ot rescue the situation and bring in His salvation.
+
 > **18** So the king of Egypt called for the midwives and said to them, Why have you done this thing and let the male children live?
 >
 > **19** And the midwives said to Pharaoh, Because the Hebrew women are not like the Egyptian women; for they are vigorous: before the midwife comes to them, they give birth.
 >
 > **20** And God dealt well with the midwives, and the people multiplied and grew very strong.
->
+
+God used the life for man's pleasure to produce the life for God's purpose.
+
 > **21** And because the midwives feared God, He established households for them.
 >
 > **22**And Pharaoh commanded all his people, saying, Every son who is born you shall cast into the River, but every daughter you shall let live.
