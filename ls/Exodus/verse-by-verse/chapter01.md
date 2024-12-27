@@ -22,29 +22,34 @@ The children of Israel went to Egypt because of a shortage of food. People becom
 The occupation with improving their living kept them from fulfilling the purpose for which God had created and chosen them.
 
 > **7** But the children of Israel were fruitful and increased abundantly and multiplied and grew exceedingly strong, and the land was filled with them.
-- The childen of Israel became "strong", meaning rich. This shows their preoccupation with material riches.
 
+The childen of Israel became "strong", meaning rich. This shows their preoccupation with material riches.
 
 > **8** And a new king rose up over Egypt, who did not know of Joseph.
+
 Pharoah is a type of Satan
 
 > **9** And he said to his people, The people of the children of Israel are now more numerous and stronger than we.
 >
 > **10** Come, let us deal wisely with them, lest they multiply and, when some war occurs, they also join themselves to those who hate us and fight against us and go up from the land.
+
 Satan is wise in dealing with people to usurp them, occupy them and enslave them.
 
 > **11** So they set taskmasters over them to afflict them with their burdens. 
-- No liberty, no rights, no rest.
+
+No liberty, no rights, no rest.
   
 > And they built storage cities for Pharaoh, Pithom and Raamses.
-- "Pithom" means "mouth of integrity" and "Raamses" means "thunder of the standard". These cities were for the proud and boastful display of their cultural standards
+
+"Pithom" means "mouth of integrity" and "Raamses" means "thunder of the standard". These cities were for the proud and boastful display of their cultural standards
 
 > **12** But the more they afflicted them, the more they multiplied and the more they spread out so that they came to dread the children of Israel.
 >
 > **13** And the Egyptians made the children of Israel serve with harshness,
 >
 > **14** And they made their lives bitter with hard labor in mortar and in brick and in all kinds of labor in the field; all their labor with which they made them serve was with harshness.
-- brick and mortar are the same materials used at Babel to make a name for themselves.
+
+brick and mortar are the same materials used at Babel to make a name for themselves.
 
 
 15
