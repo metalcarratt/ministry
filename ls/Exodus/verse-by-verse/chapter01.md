@@ -22,7 +22,8 @@ The children of Israel went to Egypt because of a shortage of food. People becom
 The occupation with improving their living kept them from fulfilling the purpose for which God had created and chosen them.
 
 > **7** But the children of Israel were fruitful and increased abundantly and multiplied and grew exceedingly strong, and the land was filled with them.
-- The childen of Israel became "strong", meaning rich. This shows their preoccupation with material riches.\
+- The childen of Israel became "strong", meaning rich. This shows their preoccupation with material riches.
+\\
 
 > **8** And a new king rose up over Egypt, who did not know of Joseph.
 - Pharoah is a type of Satan
