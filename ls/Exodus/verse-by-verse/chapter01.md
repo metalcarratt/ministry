@@ -1,4 +1,4 @@
-# Enslaved in Egypt
+# 1. Enslaved in Egypt
 
 ## 1:1-6 Continuation of Genesis
 This book is a continuation of Genesis. Genesis has a good begininning but a poor ending, but Exodus has a poor begining but an excellent ending.
@@ -15,7 +15,7 @@ This book is a continuation of Genesis. Genesis has a good begininning but a poo
 >
 > **6** And Joseph died, and all his brothers, and all that generation.
 
-
+# 2. God preparing a saviour by the female life
 ## 1:8-14 Enslaved by the world
 The children of Israel went to Egypt because of a shortage of food. People become enslaved primarily out of the need to maintain their livelihood.
 
