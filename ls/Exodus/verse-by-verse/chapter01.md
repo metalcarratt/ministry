@@ -90,7 +90,7 @@ God used the life for man's pleasure to produce the life for God's purpose.
 Several females used by God:
 - Moses' mother
 - Moses' sister
-- The female serant of Pharoah's daughter
+- The female servant of Pharoah's daughter
 - Pharoah's daughter
 
 > **1** And a man of the house of Levi went and took a daughter of Levi as wife.
