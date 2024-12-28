@@ -1,13 +1,9 @@
-
+# Building Up the Vital Groups to Gain the Increase CWWL, Letters & Gleanings, vol. 3 Chapter 1 - Meeting by language, building up the vital groups, and blending the churches
 Rv 2:7
 > He who has an ear, let him hear what the Spirit says to the churches. To him who overcomes, to him I will give to eat of the tree of life, which is in the Paradise of God.
 
 Co 4:16
 > And when this letter is read among you, cause that it be read in the church of the Laodiceans also, and that you also read the one from Laodicea.
-
-Building Up the Vital Groups to Gain the Increase
-CWWL, Letters & Gleanings, vol. 3
-Chapter 1 - Meeting by language, building up the vital groups, and blending the churches
 
 > THE BLENDING OF THE CHURCHES
 >
@@ -21,15 +17,13 @@ Chapter 1 - Meeting by language, building up the vital groups, and blending the 
 >
 >  In the late 1980s certain rebellious ones quoted sentences from Brother Watchman Nee’s book The Normal Christian Church Life, stating that once the apostles have established elders in a particular local church, the apostles should avoid interfering with that church’s affairs. However, The Normal Christian Church Life was not Brother Nee’s final word on this subject. In 1948, eleven years after sharing the messages in The Normal Christian Church Life, Brother Nee gave the messages compiled in the book Church Affairs, which may be considered a concluding word on his study of the practice of the church life. In this book Brother Nee says that after establishing a local church, the apostles need to remain there to teach the elders concerning how to be proper elders and how to care for the saints. For instance, after helping to establish the church in Ephesus and appointing the elders there, the apostle Paul did not keep his hands off that church. Instead, at one point he remained in Ephesus for three years, declaring to the saints all the counsel of God, admonishing them with tears night and day, and teaching them both publicly and from house to house (Acts 20:13-38). This indicates that instead of taking his hands off the church in Ephesus, the apostle Paul stayed with that church in order to perfect the saints in the church.
 
+# The Practical Points concerning Blending CWWL, 1994–1997, vol. 1 Chapter 3 - The significance of the blending
+
 Ep 4:4
 > One Body and one Spirit, even as also you were called in one hope of your calling;
 
 1 Co 10:17
 > Seeing that there is one bread, we who are many are one Body; for we all partake of the one bread.
-
-The Practical Points concerning Blending
-CWWL, 1994–1997, vol. 1
-Chapter 3 - The significance of the blending
 
 > When Brother Nee was raised up by the Lord, he saw the light that the local churches are needed for the Lord to take the procedure to go on to reach His goal in His economy. So he stressed the local churches very much. For seventy-two years we have all followed this revelation. We have stressed the local churches again and again. 
 >
@@ -49,9 +43,7 @@ Chapter 3 - The significance of the blending
 >
 >  Therefore, we must pay much more attention to the Body of Christ than to the local churches. This does not mean that I annul the teaching of the local churches. We still need it. As a person, we have a physical frame. That is our body. But a body by itself is a carcass. A physical body needs an inner life. Today the church is the same. On the one hand, it does have a frame, a body, but this frame is not the nature, the essence, or the element of the church. Ephesians 4 tells us the church is the Body, and within this church is the  Spirit, the Lord, and the Father (vv. 4-6). The Father is the source, the Lord is the element, and the Spirit is the essence of the Body. These four entities are built together.
 
-The Organic Union in God's Relationship with Man
-CWWL, 1993, vol. 2
-Chapter 5 - In the Building Up of the Body of Christ
+# The Organic Union in God's Relationship with Man CWWL, 1993, vol. 2 Chapter 5 - In the Building Up of the Body of Christ
 
 > In the recent rebellion in the Lord’s recovery, a teaching was promoted which said that all the local churches are autonomous. Immediately, I recognized this as the wrong teaching of G. H. Lang, a teacher who was once among the Brethren. In correcting this wrong teaching, I posed the question: “Can any part of our body be autonomous? Can the arm say that it is autonomous from the rest of the body?” The obvious answer is no. Any member of our body that decides to become autonomous will die. The members of the body are not autonomous. 
 >
@@ -61,9 +53,7 @@ Chapter 5 - In the Building Up of the Body of Christ
 >
 > Few Christians today know what the genuine building is. Therefore, it is easy to understand why, on the earth today, there is very little building among the children of God. In order to realize what building is, we must look at our physical body. Not one member of our body is separate. All the members stay together and grow together as a complete body.
 
-Southern California Elders' and Co-workers' Meetings
-CWWL, 1993, vol. 1
-Chapter 25 - Three Crucial matters concerning the Body of Christ - life, coordination and order
+# Southern California Elders' and Co-workers' Meetings CWWL, 1993, vol. 1 Chapter 25 - Three Crucial matters concerning the Body of Christ - life, coordination and order
 
 > In his ministry Brother Watchman Nee emphasized the Body of Christ and stressed the matter of coordination. Upon the resumption of his ministry, Brother Nee pointed out that some make their local church a “native church” and a “small empire.” Such ones built churches in the same way that “native churches” had been built in China. A “native church” was a so-called church raised up in a village and **cut off from other influences**; in such a “church” everything was done according to the way of the village where that “church” existed. I am concerned that some dissenting ones among us are attempting to build up their own empire by **isolating the church in their locality from other churches**. Such churches are like little isolated “kingdoms.” These dissenters assert that after establishing a church and appointing elders, **the apostles should keep their hands off the church and allow it to be autonomous**. This teaching of autonomy is contrary to the teaching of the New Testament. According to the New Testament, the apostle Paul visited and wrote Epistles to the churches that he had established (Acts 18:18-21a, 23; 19:1-7; Eph. 1:1). After appointing the elders in Ephesus (Acts 20:17; cf. 14:23), Paul visited the church in Ephesus and remained with the church for three years (ch. 19; 20:31; 1 Cor. 16:8). During this time he admonished the saints in Ephesus with tears night and day and taught the saints publicly and from house to house (Acts 20:20, 31). Later, while journeying to Jerusalem, he sent some from Miletus to call for the elders of the church in Ephesus to come to him (vv. 16-17). This indicates that the church in Ephesus was not absolutely autonomous. **If the dissenting ones saw the Body of Christ, they would not dare to teach or practice absolute autonomy of local churches**.
 > 
@@ -72,6 +62,8 @@ Chapter 25 - Three Crucial matters concerning the Body of Christ - life, coordin
 > I can testify before the Lord that I have not overstepped my measure. **It is wrong to claim that those who take the lead in the Lord’s ministry do not have spiritual authority** (cf. 2 Cor. 10:8; 13:10; 1 Thes. 2:6). In a school the teacher has authority over the students. Similarly, the authority in the Lord’s work comes from His speaking. Since the Lord has placed me in the lead in the Lord’s ministry, a certain measure of authority has been given to me.
 > 
 > The leadership in the New Testament does not reside with a person but with the teaching of the apostles (Acts 2:42; cf. 1 Tim. 1:3-4). Although I do not exercise control over the churches or the saints, **the Lord has entrusted me with His speaking, in which there is a measure of authority**. Even though we have passed through much opposition, the Lord’s speaking is still with me. By His grace I can testify that no one can overthrow the ministry in the Lord’s recovery, because I have ministered the word and conducted myself according to the principles that the Lord has revealed in the Bible. This does not mean that I am perfect. However, I am careful in my dealings with the ones with whom the Lord has placed me. My dealing with the saints differs depending on the ones with whom I labor. With those who are fully open to me, I can speak very freely, although I do not exercise control over them. It is easy for me to labor with those who are faithful, simple, and strict and who respect and honor this ministry, yet it is difficult for me to labor with those who are loose and unreliable.
+
+# The Apostles' Relationship with the Churches and Their Perfecting of the Saints CWWL, 1988, vol. 3
 
 Rv 1:12
 > And I turned to see the voice that spoke with me; and when I turned, I saw seven golden lampstands,
@@ -84,9 +76,6 @@ Ep 1:22
 
 Ep 1:23
 > Which is His Body, the fullness of the One who fills all in all.
-
-The Apostles' Relationship with the Churches and Their Perfecting of the Saints
-CWWL, 1988, vol. 3
 
 > Sometime after the Brethren were raised up, they became divided into the closed Brethren and the open Brethren. Among the open Brethren a teacher named G. H. Lang wrote many books, including The Churches of God. In that book Lang proposed that every local church should be an isolated autonomy and should be clearly separated from all other local churches. At the same time, Lang condemned Darby for trying to unify the churches into a federation. The fact that Lang’s book uses the terms autonomy and federation indicates that neither Darby nor Lang knew the ground of the local church. 
 >
