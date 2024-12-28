@@ -154,7 +154,7 @@ Moses regarded himself fully educated and qualified and acted in a bold, strong 
 
 By doing this Moses renounced his royal position (Heb. 11:24), choosing rather to be ill-treated with the people of God (Heb. 11:25-26)
 
-## ..
+## 2:16-22 Received by the female life and the mature male life
 
 > **16** Now the priest of Midian had **seven daughters**, and they came and drew water and filled the troughs to water their father’s flock.
 >
@@ -177,6 +177,8 @@ This is an example of a mature, experienced male life that accepted Moses and pe
 > **22** And she **bore a son**, and he called his name Gershom, for he said, I have been a sojourner in a **foreign land**.
 
 Like the Lord, Moses gained a wife in a gentile land, who bore him a son.
+
+## 2:23-25 The need of a saviour
 
 > **23** And in the course of those **many days** the king of Egypt died,
 
