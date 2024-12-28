@@ -21,7 +21,11 @@ The children of Israel went to Egypt because of a shortage of food. People becom
 
 The occupation with improving their living kept them from fulfilling the purpose for which God had created and chosen them.
 
-> **7** But the children of Israel were fruitful and increased abundantly and multiplied and **grew exceedingly strong**, and the land was filled with them.
+> **7** But the children of Israel were **fruitful and increased abundantly and multiplied**
+
+This was the Lord's blessing.
+
+>  and **grew exceedingly strong**, and the land was filled with them.
 
 The childen of Israel became "strong", meaning rich. This shows their preoccupation with material riches.
 
@@ -64,13 +68,16 @@ brick and mortar are the same materials used at Babel to make a name for themsel
 > **17** But **the midwives feared God** and did not do as the king of Egypt had commanded them but **let the male children live**.
 
 - It is easy for the sisters to be used by the enemy, but it is also easy for them to be used by God. Whether the church will be deadened or delivered depends on the sisters.
-- In a time of glory Satan comes in to usurp the females to damage the situation, but in a time of degredation, God comes to use the female life ot rescue the situation and bring in His salvation.
+- In a time of glory Satan comes in to usurp the females to damage the situation, but in a time of degredation, God comes to use the female life to rescue the situation and bring in His salvation.
+- Pharoah was a powerful ruler but the midwives were not afraid not hearkened to his word.
 
 > **18** So the king of Egypt called for the midwives and said to them, Why have you done this thing and let the male children live?
 >
-> **19** And the midwives said to Pharaoh, Because the Hebrew women are not like the Egyptian women; for they are vigorous: before the midwife comes to them, they give birth.
->
-> **20** And God dealt well with the midwives, and the people multiplied and grew very strong.
+> **19** And the midwives said to Pharaoh, Because the Hebrew women are not like the Egyptian women; for **they are vigorous**: before the midwife comes to them, they give birth.
+
+This was God's sovereignty to make the Hebrew women vigorous.
+
+> **20** And God dealt well with the **midwives**, and the people multiplied and grew very strong.
 
 God used the life for man's pleasure to produce the life for God's purpose.
 
