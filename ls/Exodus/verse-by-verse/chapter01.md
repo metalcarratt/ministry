@@ -1,6 +1,6 @@
 # Enslaved in Egypt
 
-## 1-6 Continuation of Genesis
+## 1:1-6 Continuation of Genesis
 This book is a continuation of Genesis. Genesis has a good begininning but a poor ending, but Exodus has a poor begining but an excellent ending.
 
 > **1** Now these are the names of the sons of Israel who came to Egypt with Jacob; each man came with his household:
@@ -16,7 +16,7 @@ This book is a continuation of Genesis. Genesis has a good begininning but a poo
 > **6** And Joseph died, and all his brothers, and all that generation.
 
 
-## 8-14 Enslaved by the world
+## 1:8-14 Enslaved by the world
 The children of Israel went to Egypt because of a shortage of food. People become enslaved primarily out of the need to maintain their livelihood.
 
 The occupation with improving their living kept them from fulfilling the purpose for which God had created and chosen them.
@@ -55,7 +55,7 @@ No liberty, no rights, no rest.
 
 brick and mortar are the same materials used at Babel to make a name for themselves.
 
-## 15-22 Killing the males and keeping the females
+## 1:15-22 Killing the males and keeping the females
 
 > **15** And the king of Egypt spoke to the Hebrew **midwives**, one whose name was Shiphrah and the other whose name was Puah;
 >
@@ -84,3 +84,108 @@ God used the life for man's pleasure to produce the life for God's purpose.
 > **21** And because the midwives feared God, He established households for them.
 >
 > **22**And Pharaoh commanded all his people, saying, Every son who is born you shall cast into the River, but every daughter you shall let live.
+
+## 2:1-10 Preparing the saviour
+
+Several females used by God:
+- Moses' mother
+- Moses' sister
+- The female serant of Pharoah's daughter
+- Pharoah's daughter
+
+> **1** And a man of the house of Levi went and took a daughter of Levi as wife.
+>
+> **2** And the woman **conceived and bore a son**; and when she saw that he was a fine child, **she hid him** three months.
+> 
+> **3** And when she could no longer hide him, she took for him a papyrus basket and plastered it with tar and pitch; and **she put the child in it and placed it** among the reeds on the bank of the River.
+
+Moses' mother:
+- gave birth to him
+- hid him
+- put him in an ark
+- later on nursed him (v9)
+
+> **4** And his sister stood at a distance to **find out what would happen to him**.
+
+Moses' sister:
+- watched over him
+- established the connection between Pharoah's daughter and Moses' mother (v7)
+
+> **5** And the daughter of Pharaoh came down to bathe at the River while her maidens walked alongside the River. And she saw the basket in the midst of the reeds and sent her female servant, and **she brought it** to her.
+
+The female slave of Pharoah's daughter:
+- served by fetching the ark
+
+> **6** And she opened it and saw the child, and there was the boy, crying. And she had compassion on him and said, This is one of the Hebrews’ children.
+>
+> **7** Then his sister said to Pharaoh’s daughter, **Shall I go and call a nurse** from the Hebrew women for you that she may nurse the child for you?
+>
+> **8** And Pharaoh’s daughter said to her, Go. And the girl went and called the child’s mother.
+>
+> **9** And Pharaoh’s daughter said to her, **Take this child away and nurse him for me**, and I will give you your wages. So the woman took the child and **nursed him**.
+>
+> **10** And the child grew, and she brought him to Pharaoh’s daughter, and **he became her son**. And she called his name Moses and said, Because I drew him out of the water.
+
+Pharoah's daughter:
+- rescued Moses
+- charged Moses' mother to nurse him
+- raised him up with the best Egyptian education (Acts 7:22)
+
+## 2:11-15 Rejected by the male life
+
+> **11** And **in those days**, when Moses had grown up, he went out to his brothers and looked on their burdens; and he saw an Egyptian beating a Hebrew, one of his brothers.
+
+At this time Moses was 40 (Acts 7:23), the number of trials, tests and sufferings
+
+> **12** And he looked this way and that, and when he saw that there was no one there, **he struck the Egyptian down** and hid him in the sand.
+
+Moses regarded himself fully educated and qualified and acted in a bold, strong manner. But it was altogether natural and God could not use it.
+
+> **13** And he went out the next day, and there were two Hebrew men struggling together; and he said to the one who was in the wrong, Why are you beating your companion?
+>
+> **14** And he said, **Who appointed you** a ruler and a judge over us? Are you thinking to kill me as you killed the Egyptian? And Moses became frightened and said, Surely the matter is known.
+
+- Moses was raised up by the female life but rejected by the male life.
+- Moses supposed his brothers would understand God was giving salvation to them through his hand. This was his natural confidence.
+- We need the raising up but we also need the rejecting so that we can see where we are and so that our character and disposition can be processed.
+- The Lord was also crucified by the male life but appreciated by the female life
+
+> **15** Now when Pharaoh heard of this matter, he sought to kill Moses. But Moses fled from Pharaoh to dwell in the land of Midian, and he sat down by a well.
+
+By doing this Moses renounced his royal position (Heb. 11:24), choosing rather to be ill-treated with the people of God (Heb. 11:25-26)
+
+## ..
+
+> **16** Now the priest of Midian had **seven daughters**, and they came and drew water and filled the troughs to water their father’s flock.
+>
+> **17** And the shepherds came and drove them away, but **Moses rose up and helped them** and watered their flock.
+
+Moses was rejected and helped the weak and suffering females who were mistreated by the shepherds.
+
+> **18** And when they came to Reuel their father, he said, Why have you come back so quickly today?
+>
+> **19** And they said, An Egyptian **delivered us** out of the hand of the shepherds, and he **even drew water for us as well and watered the flock**.
+
+They received Moses and spoke well of him to their father. This is the life that not only raises up something for God's purpose, but receives what has been raised up.
+
+> **20** And he said to his daughters, And where is he? Why did you leave the man? **Invite him** to eat a meal.
+
+This is an example of a mature, experienced male life that accepted Moses and perfected him.
+
+> **21** And Moses agreed to stay with the man, and he gave Moses **Zipporah his daughter**.
+>
+> **22** And she **bore a son**, and he called his name Gershom, for he said, I have been a sojourner in a **foreign land**.
+
+Like the Lord, Moses gained a wife in a gentile land, who bore him a son.
+
+> **23** And in the course of those **many days** the king of Egypt died,
+
+Moses stayed in Midian 40 years (Acts 7:30) which was another period of perfecting.
+
+> and the children of Israel groaned because of the bondage. And they cried out, and their cry went up to God because of their **bondage**.
+>
+> **24** And **God heard their groaning**, and God remembered His covenant with Abraham, with Isaac, and with Jacob.
+>
+> **25** And God looked upon the children of Israel, and God took notice of them.
+
+All that transpired was for the preparation of a saviour.
