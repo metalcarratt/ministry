@@ -1,4 +1,10 @@
 
+Rv 2:7
+> He who has an ear, let him hear what the Spirit says to the churches. To him who overcomes, to him I will give to eat of the tree of life, which is in the Paradise of God.
+
+Co 4:16
+> And when this letter is read among you, cause that it be read in the church of the Laodiceans also, and that you also read the one from Laodicea.
+
 Building Up the Vital Groups to Gain the Increase
 CWWL, Letters & Gleanings, vol. 3
 Chapter 1 - Meeting by language, building up the vital groups, and blending the churches
@@ -14,6 +20,12 @@ Chapter 1 - Meeting by language, building up the vital groups, and blending the 
 > In the late 1980s certain brothers in the churches erroneously claimed that the local churches should be autonomous. The word autonomy denotes self-government or independence with respect to local affairs. These brothers’ claim may have been based on G. H. Lang’s book entitled The Churches of God. In this book Lang argues that the absolute independence of each local church should be respected. However, the New Testament reveals that the universal church is the Body of Christ (Eph. 1:22-23). As parts of the organic Body, the local churches cannot be autonomous. The teaching of autonomy is erroneous. 
 >
 >  In the late 1980s certain rebellious ones quoted sentences from Brother Watchman Nee’s book The Normal Christian Church Life, stating that once the apostles have established elders in a particular local church, the apostles should avoid interfering with that church’s affairs. However, The Normal Christian Church Life was not Brother Nee’s final word on this subject. In 1948, eleven years after sharing the messages in The Normal Christian Church Life, Brother Nee gave the messages compiled in the book Church Affairs, which may be considered a concluding word on his study of the practice of the church life. In this book Brother Nee says that after establishing a local church, the apostles need to remain there to teach the elders concerning how to be proper elders and how to care for the saints. For instance, after helping to establish the church in Ephesus and appointing the elders there, the apostle Paul did not keep his hands off that church. Instead, at one point he remained in Ephesus for three years, declaring to the saints all the counsel of God, admonishing them with tears night and day, and teaching them both publicly and from house to house (Acts 20:13-38). This indicates that instead of taking his hands off the church in Ephesus, the apostle Paul stayed with that church in order to perfect the saints in the church.
+
+Ep 4:4
+> One Body and one Spirit, even as also you were called in one hope of your calling;
+
+1 Co 10:17
+> Seeing that there is one bread, we who are many are one Body; for we all partake of the one bread.
 
 The Practical Points concerning Blending
 CWWL, 1994–1997, vol. 1
@@ -61,7 +73,17 @@ Chapter 25 - Three Crucial matters concerning the Body of Christ - life, coordin
 > 
 > The leadership in the New Testament does not reside with a person but with the teaching of the apostles (Acts 2:42; cf. 1 Tim. 1:3-4). Although I do not exercise control over the churches or the saints, **the Lord has entrusted me with His speaking, in which there is a measure of authority**. Even though we have passed through much opposition, the Lord’s speaking is still with me. By His grace I can testify that no one can overthrow the ministry in the Lord’s recovery, because I have ministered the word and conducted myself according to the principles that the Lord has revealed in the Bible. This does not mean that I am perfect. However, I am careful in my dealings with the ones with whom the Lord has placed me. My dealing with the saints differs depending on the ones with whom I labor. With those who are fully open to me, I can speak very freely, although I do not exercise control over them. It is easy for me to labor with those who are faithful, simple, and strict and who respect and honor this ministry, yet it is difficult for me to labor with those who are loose and unreliable.
 
+Rv 1:12
+> And I turned to see the voice that spoke with me; and when I turned, I saw seven golden lampstands,
 
+Rv 1:20
+> The mystery of the seven stars which you saw upon My right hand and the seven golden lampstands: The seven stars are the messengers of the seven churches, and the seven lampstands are the seven churches.
+
+Ep 1:22
+> And He subjected all things under His feet and gave Him to be Head over all things to the church,
+
+Ep 1:23
+> Which is His Body, the fullness of the One who fills all in all.
 
 The Apostles' Relationship with the Churches and Their Perfecting of the Saints
 CWWL, 1988, vol. 3
