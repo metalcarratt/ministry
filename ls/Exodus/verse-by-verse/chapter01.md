@@ -146,7 +146,7 @@ Moses regarded himself fully educated and qualified and acted in a bold, strong 
 > **14** And he said, **Who appointed you** a ruler and a judge over us? Are you thinking to kill me as you killed the Egyptian? And Moses became frightened and said, Surely the matter is known.
 
 - Moses was raised up by the female life but rejected by the male life.
-- Moses supposed his brothers would understand God was giving salvation to them through his hand. This was his natural confidence.
+- Moses supposed his brothers would understand God was giving salvation to them through his hand (Acts 7:25). This was his natural confidence.
 - We need the raising up but we also need the rejecting so that we can see where we are and so that our character and disposition can be processed.
 - The Lord was also crucified by the male life but appreciated by the female life
 
