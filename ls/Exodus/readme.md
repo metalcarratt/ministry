@@ -169,3 +169,10 @@ The bronze altar
 - Message 106 - ?
 - [Message 107](msg107.md) - the grating was connected the rings, the eternal Spirit; we cannot divorce Christ's redemption from the Spirit, for it is He who makes Christ's sacrifice powerful and efficacious
 - [Message 108](msg108.md) - the move of the altar was through a corporate priesthood, showing that the move of the Spirit throughout the earth cannot be separated from the move of the church
+- [Message 109](msg109.md) - the rings and the grating are one; the grating reaches God's standard in the ark; the ashes are for our confirmation and the smoke for God's satisfaction
+
+The outer court
+- [Message 110](msg110.md) - From God's side holiness is first then righteousness; from our side righteousness is first; the most impressive thing was linen, righteousness
+- [Message 111](msg111.md) - Righteousness cannot be separated from responsibility; we need bronze to judge us and silver to redeem us so we can be connected to others
+- [Message 112](msg112.md) - Need of spiritual alphabet; need to place ourselves under judgement, then God redeems what is judged and the result is righteousness and entrance into the tabernacle
+- 
