@@ -154,3 +154,18 @@ The covering of the tent
 
 The standing boards
 - [Message 97](msg97.md) - Acacia wood overload with gold; half units needing to be matched
+- [Message 98](msg98.md) - tenons of faith in sockets of silver to be our standing strength
+
+The veil and the screen
+- [Message 99](msg99.md) - the flesh which needs to be rent in order for us to have an entrance into the Holy of Holies; the pillars being the special believers who allow others a way in to the Holy of Holies
+- [Message 100](msg100.md) - the new covenant is in the Holy of Holies so we need the dividing of soul and spirit; the leading ones in the church need the flesh dealt with so that the whole church can enter the Holy of Holies
+- [Message 101](msg101.md) - the screen brings us into God's salvation, the veil into the Holy of Holies; we need pillars who bring people into the church and pillars who bring the church into God
+- [Message 102](msg102.md) - Christ as the screen keeps out the negative things and only allows in those who repent; people can only find the entrance through those who are the pillars bearing Christ as a testimony
+- [Message 103](msg103.md) - The ministry of reconciliation in 2 Cor matches the veil and the screen as two steps into God; full reconciliation is to be brought into God in the Holy of Holies
+
+The bronze altar
+- [Message 104](msg104.md) - God journeyed from the ark to the altar to bring us from the outer court into the holy of holies; the altar is the base for all experiences
+- [Message 105](msg105.md) - the grating inside the altar was the place of sacrifice and was connected to the rings and bars for the movement of the altar
+- Message 106 - ?
+- [Message 107](msg107.md) - the grating was connected the rings, the eternal Spirit; we cannot divorce Christ's redemption from the Spirit, for it is He who makes Christ's sacrifice powerful and efficacious
+- [Message 108](msg108.md) - the move of the altar was through a corporate priesthood, showing that the move of the Spirit throughout the earth cannot be separated from the move of the church
