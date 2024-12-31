@@ -126,6 +126,7 @@ The enactment of the covenant
 
 ## The revelation of the building
 
+### The pattern of the tabernacle and its furniture
 The building of the tabernacle
 - [Message 81](msg81.md) - The materials for the building - animal, plant and mineral
 - [Message 82](msg82.md) - Bringing our experiences as a heave offering to the church
@@ -175,4 +176,18 @@ The outer court
 - [Message 110](msg110.md) - From God's side holiness is first then righteousness; from our side righteousness is first; the most impressive thing was linen, righteousness
 - [Message 111](msg111.md) - Righteousness cannot be separated from responsibility; we need bronze to judge us and silver to redeem us so we can be connected to others
 - [Message 112](msg112.md) - Need of spiritual alphabet; need to place ourselves under judgement, then God redeems what is judged and the result is righteousness and entrance into the tabernacle
-- 
+- [Message 113](msg113.md) - The way to come in to the realm of God's righteousness (the church) and remain there is by passing through judgment - this is to repent
+
+### The lighting of the lamps and the priestly garments
+Lighting of the lamps
+- [Message 114](msg114.md) - the light of the tabernacle is not natural or man-made but holy light - our meetings should be full of this kind of light
+- [Message 115](msg115.md) - The lighting of the lamps imply the way to meet - which incluldes the Triune God, His humanity, the Spirit, and the proper expression
+
+The priestly garments
+- [Message 116](msg116.md) - the priesthood is all the priests being built together into a house
+- [Message 117](msg117.md) - the clothing of the priests is a type of building, we should not be individual but members of the body
+- [Message 118](msg118.md) - six items in the garments; the garments were for beauty and glory signifying the expression of humanity and divinity
+
+The ephod
+- [Message 119](msg119.md) - the binding, holding, fastening, girding up power to connect us to Christ, which is the interweaving of gold, blue, purple and scarlet strands which is His beauty and glory
+- [Message 120](msg120.md) - as transformed onyx stones the ephod binds us to His shoulders, and as built up stones in the breastplate the ephod binds us to one another upon the Lord's breast
