@@ -191,3 +191,24 @@ The priestly garments
 The ephod
 - [Message 119](msg119.md) - the binding, holding, fastening, girding up power to connect us to Christ, which is the interweaving of gold, blue, purple and scarlet strands which is His beauty and glory
 - [Message 120](msg120.md) - as transformed onyx stones the ephod binds us to His shoulders, and as built up stones in the breastplate the ephod binds us to one another upon the Lord's breast
+- [Message 121](msg121.md) - the interwoven gold thread and fine linen is a picture of the mingling of the Lord's divinity and humanity
+- [Message 122](msg122.md) - the onyx stones and gold filament mutually beautify each other
+
+The breastplate
+- [Message 123](msg123.md) - the breastplate fitting within the Lord's hand, under His care
+- [Message 124](msg124.md) - the breastplate being on the loving and caring heart of Christ
+- [Message 125](msg125.md) - the breastplate and stones connected to the ephod by chains and rings of gold and ribbons of blue linen (His divinity and humanity)
+
+The Urim and the Thummim
+- [Message 126](msg126.md) - making the breastplate the breastplate of judgment; to receive leading we need to be judged by God
+- [Message 127](msg127.md) - God's top way of speaking is through the urim and the thummim; example from Joshua
+- [Message 128](msg128.md) - Thummim is Christ as the completor
+- [Message 129](msg129.md) - to have God's speaking the stones need transformation, inscribed with definite experiences of Christ, shining with light, and the completing
+
+Other items: the robe, turban, girdle, tunic, breaches, and golden plate
+- [Message 130](msg130.md) - the robe had a train signifying the Lord's virtues filling the earth, it had an opening like chain mail to defend from the enemy's attacks, and it had bells and pomegranates for fullness of life and warning
+- [Message 131](msg131.md) - fourfold holiness and the covering of our nakedness
+- [Message 132](msg132.md) - the degree of our holiness is the degree of our being wholly separated unto God
+
+The sanctification of the priests
+- [Message 133](msg133.md) - to be sanctified as a priest the priests needed to have their hands full of the rich offerings
