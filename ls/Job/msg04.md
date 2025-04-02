@@ -12,3 +12,5 @@ in the body the putting to death of Jesus, his outer man being consummed but hiz
 inner man being renewed.
 
 paul was like this because he wanted to be renewed. renewing can only be consummated by consuming. he also cared for the increase of the eternal weight of glory that he would share in.
+
+God wanted to tear down, strip, and consume Job of his natural perfectness and uprightness. he wanted to bring him out of the tree of knowledge of good and evil to the tree of life and fill him with Christ to make him a man of God.
