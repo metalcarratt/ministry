@@ -5,3 +5,4 @@ Job's response:
 this is different from Paul's attitude when facing matyrdom.
 
 - insisting he was not wrong and asking to be taught how he had erred
+- loathing life
