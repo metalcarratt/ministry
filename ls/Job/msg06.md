@@ -10,3 +10,5 @@ this is different from Paul's attitude when facing matyrdom.
 God's stripping being that Job would seek and gain only God Hinself.
 
 God could not speak of His economy to Job and his friends because their spiritual culture was very primitive. we need to enjoy and experience Christ so that when we meet we can speak and fellowship something positive to one another, ministering Christ to one another.
+
+> i hope ... we will all be brought into a further step of our divine culture in order that we may be filled with the dispensing of God in Christ as our life, our life supply, and our everything.
