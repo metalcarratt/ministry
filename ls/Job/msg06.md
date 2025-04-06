@@ -6,3 +6,5 @@ this is different from Paul's attitude when facing matyrdom.
 
 - insisting he was not wrong and asking to be taught how he had erred
 - loathing life
+
+God's stripping being that Job would seek and gain only God Hinself.
