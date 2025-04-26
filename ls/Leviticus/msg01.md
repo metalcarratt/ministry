@@ -4,3 +4,5 @@ Gods revelation in the bible is progressive:
 - in leviticus is how the redeemed people live and serve. to serve God is to enjoy a common portion with Him and fellowship with Hin.
 
 the whole of leviticus was God's speaking. this speaking happened within the tabernacle. in genesis god was in the heavens, in exodus he spoke from the mountain, but at the end of exodus the tabernacle was built and in leviticus he spoke from the tabernacle. the preciousness of the tabernacle was not the gold in it, but that it had God's speaking.
+
+in exodus God gave the law, demanded righteousness. and spoke from fire. but in leviticus, God spoke from grace, presenting the redeeming Christ as the offerings.
