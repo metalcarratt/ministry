@@ -13,3 +13,9 @@ the tabernacle is for God to dwell in and the offerings are for God to enjoy. ho
 > the offerings are for God to enjoy through our appreciation and presentation. without our appreciation and presentation of Christ as the offerings, God cannotbhave any enjoyment of the offerings. God has come to us in Christ, becoming the tabernacle, the dwelling place, for Himself. He has also become all the offerings for us and for Himself. If we do not appreciate these offerings and present them to God, God will not have any enjoyment of the offerings.
 >
 > Just as the Israelites were to labor on the good land to have the produce to offer to God, so we need to labor on Christ that we may be able to present Him to God. to labor on Christ is to endeavor to enjoy Him and to experience Him. the more we enjoy and experience Christ, the more we shall appreciate Him. then we should present Christ to God for His enjoyment.
+
+the root of the word "bring" and "offering" are the same, the word for "present". the offerings we bring are a kind of present or gift we bring to have fellowship with an intimate friend.
+
+the church meetings are cooking meetings. christ is the groceries and we and God are the eaters. but we alone are the cooks. through our experience of Christ as the groceries we cook him and then present him in the church meetings as food for both God and one another.
+
+> have you ever realised that the church meeting is a cooking meeting, and eating meeting? ... The groceries are here, and the eaters are also here, but who are the cooks? I have the assurance to say that God and the Spirit are not the cooks. ut that we are the cooks. Therefore, we must all learn to cook.
