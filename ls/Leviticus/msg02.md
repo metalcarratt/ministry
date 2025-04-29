@@ -18,4 +18,4 @@ the root of the word "bring" and "offering" are the same, the word for "present"
 
 the church meetings are cooking meetings. christ is the groceries and we and God are the eaters. but we alone are the cooks. through our experience of Christ as the groceries we cook him and then present him in the church meetings as food for both God and one another.
 
-> have you ever realised that the church meeting is a cooking meeting, and eating meeting? ... The groceries are here, and the eaters are also here, but who are the cooks? I have the assurance to say that God and the Spirit are not the cooks. ut that we are the cooks. Therefore, we must all learn to cook.
+> have you ever realised that the church meeting is a cooking meeting, and eating meeting? ... The groceries are here, and the eaters are also here, but who are the cooks? I have the assurance to say that God and the Spirit are not the cooks, but that we are the cooks. Therefore, we must all learn to cook.
