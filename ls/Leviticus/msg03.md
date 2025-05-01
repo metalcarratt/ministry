@@ -1,1 +1,3 @@
 christ as the burnt offering.
+
+in hebrews christ came to do the will of God. this will was to replace the old covenant sacrifice and offerings with himself as the new covenant sacrifice and offerings. to be qualified to be the replacement for the old covenant sacrifices and offerings the lord had to be absolute for God in all things. if there were even one thing in which he were not absolute for God, then He would need another to be His Savior and He would be disqualified. thus it is as the burnt offering that he was able to do the will of God to replace the old covnenant sacrifices and offerings.
