@@ -17,3 +17,17 @@ the burnt offering was slaughtered. this was Christs living on earth. for exampl
 to be skinned is to be defamed, stripped, of the beauty of human virtues. for example some called the Lord Jesus a samaritan. demon possessed and insane. paul was accused by the corinthians of being crafty for monetary gain. in 2 cor. 6:3-13, paul lists the qualifications of being a minister of God, and one of them is "glory and dishonor", "evil report and good report", showing that in Paul's mind the spreading of evil reports about him were an evidence of him being a minister of God.
 
 although we can experience the skinning our experience is relative. only christ has the absolute experience of being the burnt offering.
+
+#### cut into piece
+
+to be accused of doing something wrong is to be cut into pieces. problems can only be solved with forgiveness. to forgive is to forget. labouring on christ includes being willing to be cut into pieces. 
+
+> do you know what it means to forgive? to forgive is to forget. if you touch some saints in the church life wrongly, they may not forgive you their entire lifetime. this unwillingness to forgive affects the praises at the Lord's table.
+
+#### washed
+
+the inwards parts and legz were washed with water. the lord was not dirty because he was continually washed inwardly by the holy spirit. we need to be the same.
+
+#### a satisfying fragrance
+
+the burnt offering was burned slowly for Godz satisfaction. only the life of complete obedience can be pleasing to god. for this we need to lay our hands on christ as our burnt offering.
