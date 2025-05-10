@@ -13,3 +13,9 @@ Mt 27:31
 Pp 2:8
 > And being found in fashion as a man, He humbled Himself, becoming obedient even unto death, and that the death of a cross.
 
+## being slaughtered
+
+Ac 2:23
+> This man, delivered up by the determined counsel and foreknowledge of God, you, through the hand of lawless men, nailed to a cross and killed;
+
+even the way the Jews killed the passover lamb, by tying its legs to a cross section of wood, may be a type of the Lords being slaughtered on the cross.
