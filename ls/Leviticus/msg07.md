@@ -20,7 +20,7 @@ Ac 2:23
 
 even the way the Jews killed the passover lamb, by tying its legs to a cross section of wood, may be a type of the Lords being slaughtered on the cross.
 
-## skinnee, stripped
+## skinned, stripped
 
 Mt 11:19
 > The Son of Man came eating and drinking; and they say, Behold, a gluttonous man and a drunkard, a friend of tax collectors and sinners. Yet wisdom is justified by her works.
