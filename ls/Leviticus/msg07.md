@@ -31,3 +31,12 @@ Mk 3:22
 Jn 8:48
 > The Jews answered and said to Him, Have we not spoken well in saying that You are a Samaritan and have a demon?
 
+Mt 26:65
+> Then the high priest tore his garments, saying, He has blasphemed! What further need do we have of witnesses? Behold, now you have heard the blasphemy.
+
+Mt 27:28
+> And they stripped Him and put a scarlet robe around Him,
+
+Ps 22:18
+> They divide my garments to themselves, / And for my clothing they cast lots.
+
