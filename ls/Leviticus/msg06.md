@@ -11,3 +11,7 @@ Pp 3:10
 the daily experience of the burnt offering also includes taking christ as our wisdom, signified by the head of the bull, and of being washed by the spirit inwardly and outwardly by thr spirit, signified by the washing with water. the washing of the holy spirit keeps us outwardly from defiling things and washing away anything defiling that gets into us.
 
 the fire signifies the Holy God. with the burnt offering, this fire was for acceptance, and can be likened to God's mouth. with the sin offering and tresspass offering, this fire was for judgment. the fire for burnt offering (but not the fire for sin or tresspass) was to never go out; the priests had to add wood to it to keep it burning continually.
+
+the ashes signify God's acceptance of the offering and are thus very precious to us. they were not thrown away but placed on the east of the altar, the side of resurrection, and eventually taken to a clean place.
+
+the skin was not but given to the offering priests, showing Christ's virtues become ours to wear.
