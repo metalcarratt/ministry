@@ -1,6 +1,6 @@
 Christ's experiences as the burnt offering
 
-### being brought to the slaughter
+## being brought to the slaughter
 
 Showing His obedience in being slaughtered.
 
