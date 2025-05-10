@@ -19,3 +19,15 @@ Ac 2:23
 > This man, delivered up by the determined counsel and foreknowledge of God, you, through the hand of lawless men, nailed to a cross and killed;
 
 even the way the Jews killed the passover lamb, by tying its legs to a cross section of wood, may be a type of the Lords being slaughtered on the cross.
+
+## skinnee, stripped
+
+Mt 11:19
+> The Son of Man came eating and drinking; and they say, Behold, a gluttonous man and a drunkard, a friend of tax collectors and sinners. Yet wisdom is justified by her works.
+
+Mk 3:22
+> And the scribes who came down from Jerusalem said, He has Beelzebul, and by the ruler of the demons He casts out the demons.
+
+Jn 8:48
+> The Jews answered and said to Him, Have we not spoken well in saying that You are a Samaritan and have a demon?
+
