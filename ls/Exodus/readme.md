@@ -212,3 +212,11 @@ Other items: the robe, turban, girdle, tunic, breaches, and golden plate
 
 The sanctification of the priests
 - [Message 133](msg133.md) - to be sanctified as a priest the priests needed to have their hands full of the rich offerings
+- [Message 134](msg134.md) - the sin offering makes us conscious that we are sinners
+- [Message 135](msg135.md) - to be a priest we need to be washed, clothed, fed, hands filled, and have the sin offering as a constant reminder of what we are
+- [Message 136](msg136.md) - three offerings; sin offering, burnt offering and peace offering.
+- [Message 137](msg137.md) - NT shows we need to be priests; exodus shows us **how** to become priests
+- [Message 138](msg138.md) - the peace offering. the breast becoming a wave offering and the shoulder becoming a heave offering
+- [Message 139](msg139.md) - the goal of the sanctification of the priest is to eat in God's presence and have His speaking
+- [Message 140](msg140.md) - the priests must be clothed to meet God; the top portion of the top portion could only be enjoyed at the feasts (the church meetings)
+- [Message 141](msg141.md) - sin offering is needed because we are sin, even if we do nothing wrong
