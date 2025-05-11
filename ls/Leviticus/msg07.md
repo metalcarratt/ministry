@@ -106,4 +106,20 @@ Jn 6:38
 Jn 7:18
 > He who speaks from himself seeks his own glory; but He who seeks the glory of Him who sent Him, this One is true, and unrighteousness is not in Him.
 
+## the inward parts
+
+### His mind set on the fathers business
+
+Lk 2:49
+> And He said to them, Why is it that you were seeking Me? Did you not know that I must be in the things of My Father?
+
+### His emotion burning for the house of God
+
+Jn 2:17
+> His disciples remembered that it was written, “The zeal of Your house shall devour Me.”
+
+### His will subdued by the Father
+
+Mt 26:39b
+> yet not as I will, but as You will.
 
