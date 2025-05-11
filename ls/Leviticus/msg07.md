@@ -40,3 +40,16 @@ Mt 27:28
 Ps 22:18
 > They divide my garments to themselves, / And for my clothing they cast lots.
 
+## cut into pieces
+
+the first three hours on the cross
+
+Mk 15:29-32
+> And those who were passing by blasphemed Him, wagging their heads and saying, Aha! You who destroy the temple and build it in three days,
+> Save Yourself and come down from the cross!
+> Likewise also the chief priests with the scribes mocked Him with one another and said, He saved others; Himself He cannot save.
+> Let the Christ, the King of Israel, come down now from the cross that we may see and believe. Those who were crucified with Him also reproached Him.
+
+Ps 22:16-17
+> For dogs surround me; / A company of evildoers encloses me; / They pierce my hands and feet.
+> I count all my bones; / They look, they stare at me.
