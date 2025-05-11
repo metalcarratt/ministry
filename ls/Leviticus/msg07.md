@@ -95,5 +95,15 @@ when questioned concerning taxes He first had them produce a roman coin and then
 Mt 22:21b
 > Then He said to them, Render then the things that are Caesar’s to Caesar and the things that are God’s to God.
 
+## being a delight to God (fat) through absolute obedience
+
+Mt 3:17
+> And behold, a voice out of the heavens, saying, This is My Son, the Beloved, in whom I have found My delight.
+
+Jn 6:38
+> For I have come down from heaven not to do My own will but the will of Him who sent Me.
+
+Jn 7:18
+> He who speaks from himself seeks his own glory; but He who seeks the glory of Him who sent Him, this One is true, and unrighteousness is not in Him.
 
 
