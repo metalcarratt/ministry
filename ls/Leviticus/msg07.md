@@ -68,3 +68,32 @@ Lk 2:40
 
 Lk 2:52
 > And Jesus advanced in wisdom and stature and in the grace manifested in Him before God and men.
+
+### speaking maxims
+
+The Lord spoke seemingly contradictory statements:
+
+Mk 9:40
+> For he who is not against us is for us.
+
+and
+
+Mt 12:30
+> He who is not with Me is against Me, and he who does not gather with Me scatters.
+
+However in Matthew He was speaking concerning those who cast out demons, and thus spoke about tolerating those witg different outward practices. in Mark He was responding to the pharisees who had called Him Lord of the demons, and referred to the need to maintain inward unity.
+
+### in being questioned
+
+knowing they were lying and thus not responding to their question (Matt 21:23-27)
+
+Mt 21:27b
+> He too said to them, Neither do I tell you by what authority I do these things.
+
+when questioned concerning taxes He first had them produce a roman coin and then used wise words to deflect their question (Matt. 22:15-22)
+
+Mt 22:21b
+> Then He said to them, Render then the things that are Caesar’s to Caesar and the things that are God’s to God.
+
+
+
