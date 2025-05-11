@@ -123,7 +123,7 @@ Jn 2:17
 Mt 26:39b
 > yet not as I will, but as You will.
 
-### His heart voluntarily poured out
+### His soul voluntarily poured out
 
 Is 53:12b
 > Because He poured out His life unto death
@@ -139,3 +139,18 @@ Is 42:4
 Mk 2:8
 > And immediately Jesus, knowing fully in His spirit that they were reasoning this way within themselves, said to them, Why are you reasoning about these things in your hearts?
 
+## His walk (legs) being perfect, powerful in word and work
+
+Lk 24:19
+> And they said to Him, The things concerning Jesus the Nazarene, who was a Prophet powerful in work and word before God and all the people;
+
+Jn 8:46
+> Which of you convicts Me of sin? Since I speak truth, why do you not believe Me?
+
+## washed - kept by the Holy Spirit from all defilement
+
+Lk 4:1
+> And Jesus, full of the Holy Spirit, returned from the Jordan and was led by the Spirit in the wilderness, while being tempted for forty days by the devil.
+
+He 7:26
+> For such a High Priest was also fitting to us, holy, guileless, undefiled, separated from sinners and having become higher than the heavens,
