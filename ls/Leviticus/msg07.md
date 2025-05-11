@@ -123,3 +123,19 @@ Jn 2:17
 Mt 26:39b
 > yet not as I will, but as You will.
 
+### His heart voluntarily poured out
+
+Is 53:12b
+> Because He poured out His life unto death
+
+
+### His heart - never discouraged
+
+Is 42:4
+> He will not faint, nor will He be discouraged,
+
+### knowing in His spirit
+
+Mk 2:8
+> And immediately Jesus, knowing fully in His spirit that they were reasoning this way within themselves, said to them, Why are you reasoning about these things in your hearts?
+
