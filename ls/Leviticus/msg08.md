@@ -1,4 +1,4 @@
-to offer Christ as the sin offering or tresspass offering does not require us
+9to offer Christ as the sin offering or tresspass offering does not require us
 to have experienced Christ. we only need to cry out and repent and we will be
 forgiven imm3lediately. however with the burnt offering we can only offer what we
 have experienced of Christ as the burnt offering. it is absolutely not what we can
@@ -42,4 +42,9 @@ Ac 24:5-6a
 
 Mt 5:11
 > Blessed are you when they reproach and persecute you, and while speaking lies, say every evil thing against you because of Me.
+
+### being cut into pieces
+
+1Co 4:13
+> Defamed we exhort. We have become as the offscouring of the world, the scum of all things, until now.
 
