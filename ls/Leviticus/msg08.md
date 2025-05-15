@@ -4,3 +4,31 @@ forgiven imm3lediately. however with the burnt offering we can only offer what w
 have experienced of Christ as the burnt offering. it is absolutely not what we can
 do but what we experience of Christ who is the only one pure enough to be the burnt
 offering.
+
+## our experience of the burnt offering
+
+1Co 11:1
+> Be imitators of me, as I also am of Christ.
+
+### being led to the slaughter
+
+Pp 3:10
+> To know Him and the power of His resurrection and the fellowship of His sufferings, being conformed to His death,
+
+Ac 21:27b
+> the Jews from Asia saw him in the temple and threw all the crowd into confusion; and they laid their hands on him,
+
+Ac 21:30-31a
+> And the whole city was stirred, and the people ran together; and they laid hold of Paul and dragged him outside the temple; and immediately the doors were shut. And as they were seeking to kill him,
+
+Ac 21:33
+> Then the commander drew near and laid hold of him and ordered him to be bound with two chains.
+
+Ac 21:36
+> For the multitude of the people were following and crying out, Away with him!
+
+### being slaughtered
+
+2Co 4:11
+> For we who are alive are always being delivered unto death for Jesus’ sake that the life of Jesus also may be manifested in our mortal flesh.
+
