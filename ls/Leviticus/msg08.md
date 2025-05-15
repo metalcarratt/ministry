@@ -32,3 +32,14 @@ Ac 21:36
 2Co 4:11
 > For we who are alive are always being delivered unto death for Jesus’ sake that the life of Jesus also may be manifested in our mortal flesh.
 
+### being skinned
+
+Ac 24:5-6a 
+> For we have found this man a pest and an agitator of insurrections among all the Jews throughout the inhabited earth... who has also tried to profane the temple.
+
+2Co 12:16
+> But let it be. I did not burden you; but, as some of you say, being crafty, I took you by guile.
+
+Mt 5:11
+> Blessed are you when they reproach and persecute you, and while speaking lies, say every evil thing against you because of Me.
+
