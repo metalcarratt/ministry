@@ -53,3 +53,13 @@ Ep 4:20
 1P 2:21
 > For to this you were called, because Christ also suffered on your behalf, leaving you a model so that you may follow in His steps;
 
+### washed - kept from defilement by the Holy Spirit
+
+1Co 6:11
+> And these things were some of you; but you were washed, but you were sanctified, but you were justified in the name of the Lord Jesus Christ and in the Spirit of our God.
+
+Tt 3b
+> through the washing of regeneration and the renewing of the Holy Spirit,
+
+
+
