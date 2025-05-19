@@ -38,3 +38,18 @@ Pp 1:8
 
 1Co 16:24
 > My love in Christ Jesus be with you all.
+
+### legs - learning Christ in His walk
+
+Mt 11:29a
+> Take My yoke upon you and learn from Me
+
+Ep 4:20
+> But you did not so learn Christ,
+
+1Co 11:1
+> Be imitators of me, as I also am of Christ.
+
+1P 2:21
+> For to this you were called, because Christ also suffered on your behalf, leaving you a model so that you may follow in His steps;
+
