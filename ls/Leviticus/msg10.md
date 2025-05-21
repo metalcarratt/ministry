@@ -1,6 +1,6 @@
 to live Christ as the burnt offering is not to imitate Him but to live Him.
 
-there are many verses that can be used to indicate we should follow Christ. sich as:
+there are many verses that can be used to indicate we should follow Christ. such as:
 
 Mt 11:29
 > Take My yoke upon you and learn from Me, for I am meek and lowly in heart, and you will find rest for your souls.
