@@ -17,3 +17,5 @@ offering, wave offering, heave offering, free will offering and drink offering.
 Apart from Christ we have nothing to offer to
 God. the Christ we have eaten and experienced should be the Christ we offer to God
 for His satisfaction.
+
+> if wd would experience and enjoy Christ as He is revealed in Leviticus, we should pray not in a mental way but by releasing our spirit through the word in the Bible. This will cause the constant word in the Bible to become the instant word to us. This is the way to enjoy Christ.
