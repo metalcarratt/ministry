@@ -19,3 +19,12 @@ Lk 3:22
 
 Lk 23:14
 > Said to them, You have brought this man to me as one who turns the people away, and behold, I have examined Him before you and found no fault in this man regarding the accusations you bring against Him.
+
+### without honey
+
+Mt 12:47-48
+> And someone said to Him, Behold, Your mother and Your brothers are standing outside seeking to speak to You. But He answered and said to him who spoke to Him, Who is My mother, and who are My brothers?
+
+Pp 2:2
+> Make my joy full, that you think the same thing, having the same love, joined in soul, thinking the one thing,
+
