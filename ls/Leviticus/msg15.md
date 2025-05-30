@@ -12,8 +12,8 @@ The Lord was anointed with the Spirit economically for power. however the form t
 Spirit came in was as a dove, a figure of gentleness, showing that the Spirit here
 is a Person, not just a power.
 
-Lk 1:35
-> And the angel answered and said to her, The Holy Spirit will come upon you, and the power of the Most High will overshadow you; therefore also the holy thing which is born will be called the Son of God.
+Lk 3:22
+> And the Holy Spirit descended in bodily form as a dove upon Him. And a voice came out of heaven: You are My Son, the Beloved; in You I have found My delight
 
 ### sinless and faultless one as the unleavened one
 
