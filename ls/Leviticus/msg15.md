@@ -1,6 +1,6 @@
 the meal offering is the main offering of all the offerings. the main ingredients are fine flour, oil, frankincense and salt, as well as no leaven and no honey.
 
-#### The Lord Jesus mingled and anointed with the Spirit
+### The Lord Jesus mingled and anointed with the Spirit
 
 The Lord was God from eternity past who became a man. His humanity was mingled with
 divinity from His birth. Apart from the Holy Spirit He had no way to be born:
