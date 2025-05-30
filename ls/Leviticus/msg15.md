@@ -15,3 +15,7 @@ is a Person, not just a power.
 Lk 1:35
 > And the angel answered and said to her, The Holy Spirit will come upon you, and the power of the Most High will overshadow you; therefore also the holy thing which is born will be called the Son of God.
 
+### sinless and faultless one as the unleavened one
+
+Lk 23:14
+> Said to them, You have brought this man to me as one who turns the people away, and behold, I have examined Him before you and found no fault in this man regarding the accusations you bring against Him.
