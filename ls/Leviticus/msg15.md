@@ -28,3 +28,13 @@ Mt 12:47-48
 Pp 2:2
 > Make my joy full, that you think the same thing, having the same love, joined in soul, thinking the one thing,
 
+## the cake vs the fine flour mingled with oil
+
+there are two keys forms of the meal offering: the fine flour mingled with oil, signifying Christ, and us individually as believers living Christ; the cake, which is the fine flour mingled with oil and baked, signifying the church. 1 Cor 12:12, 10:17.
+
+the church life is not an angelic life but a life of humanity mingled and anointed with the spirit, a life of the cross and the fragrance of resurrection.
+
+this meal offering church life is our food. we will eat the church life for it will be our supply.
+
+> The meal-offering church life can be burned to produce a satisfying fragrance for God, and the remainder of this offering will be our food. This means that we will eat our church life, for the church life will be our daily supply. ... Now we are feeding on Christ, and we are also feeding on the church life.
+
