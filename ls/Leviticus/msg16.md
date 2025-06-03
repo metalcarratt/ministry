@@ -24,3 +24,5 @@ in resurrection:
   - our labor not being in vain because of resurrection (15:58)
 - "each one, brothers, in what state he was called, in this let him remain with God" (7:24)
   - remaining in the status of a slave to demonstrate the reality of resurrection (7:21-22)
+  - remaining married or unmarried, with God (7:27)
+  - being subject to the (Roman) authorities (Rom 13:1) and paying taxes to them (Rom 13:6)
