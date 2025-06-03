@@ -25,3 +25,15 @@ in the fragrance of resurrection:
   - remaining in the status of a slave to demonstrate the reality of resurrection (7:21-22)
   - remaining married or unmarried, with God (7:27)
   - being subject to the (Roman) authorities (Rom 13:1) and paying taxes to them (Rom 13:6)
+
+
+
+
+1Co 7:17
+> However as the Lord has apportioned to each one, as God has called each one, so let him walk. And so I direct in all the churches.
+
+1Co 7:24
+> Each one, brothers, in what status he was called, in this let him remain with God.
+
+1Co 7:27
+> Have you been bound to a wife? Do not seek a release. Have you been released from a wife? Do not seek a wife.
