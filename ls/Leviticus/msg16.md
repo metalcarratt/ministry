@@ -17,3 +17,10 @@ the Spirit:
 - have receieved "the Spirit which is from God" (2:12)
 - we are a temple of the living God and the Spirit dwells in us (3:16)
 - we who are joined to the Lord are one spirit (6:17) - one with Him through mingling
+
+in resurrection:
+- the whole of 1 cor 15 is on resurrection:
+  - being an apostle by grace, which equals resurrection (15:9)
+  - our labor not being in vain because of resurrection (15:58)
+- "each one, brothers, in what state he was called, in this let him remain with God" (7:24)
+  - remaining in the status of a slave to demonstrate the reality of resurrection (7:21-22)
