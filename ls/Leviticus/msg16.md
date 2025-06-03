@@ -11,13 +11,13 @@ highest humanity:
   - called into the fellowship of the son (1:9)
   - we are of Christ Jesus (1:30)
 
-the Spirit:
+anointed and mingled with the Spirit:
 - speaking in the "demonstration of the Spirit" (2:4)
 - have receieved "the Spirit which is from God" (2:12)
 - we are a temple of the living God and the Spirit dwells in us (3:16)
 - we who are joined to the Lord are one spirit (6:17) - one with Him through mingling
 
-in resurrection:
+in the fragrance of resurrection:
 - the whole of 1 cor 15 is on resurrection:
   - being an apostle by grace, which equals resurrection (15:9)
   - our labor not being in vain because of resurrection (15:58)
