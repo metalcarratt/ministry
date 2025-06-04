@@ -26,7 +26,10 @@ in the fragrance of resurrection:
   - remaining married or unmarried, with God (7:27)
   - being subject to the (Roman) authorities (Rom 13:1) and paying taxes to them (Rom 13:6)
 
-
+the cross:
+- preaching the crucified Christ (1:22-23)
+- the word of the cross being power (1:18)
+- the power of God and the wisdom of God (1:24)
 
 
 1Co 7:17
