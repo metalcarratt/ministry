@@ -32,6 +32,16 @@ the cross:
 - the power of God and the wisdom of God (1:24)
 - marriage life and the church life salts us, crosses us out
 
+purging out the old leaven to be an unleavened lump (5:6-8)
+
+no honey:
+- by not living the natural life, the old I (15:10)
+
+one bread:
+- we who are many are one bread, one Body (10:17)
+- the breaking of the bread is the fellowship of the Body (10:16)
+
+the church life feeds us because it is a corporate meal offering.
 
 1Co 7:17
 > However as the Lord has apportioned to each one, as God has called each one, so let him walk. And so I direct in all the churches.
