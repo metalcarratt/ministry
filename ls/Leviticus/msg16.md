@@ -30,6 +30,7 @@ the cross:
 - preaching the crucified Christ (1:22-23)
 - the word of the cross being power (1:18)
 - the power of God and the wisdom of God (1:24)
+- marriage life and the church life salts us, crosses us out
 
 
 1Co 7:17
