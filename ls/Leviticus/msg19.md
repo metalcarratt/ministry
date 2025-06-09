@@ -5,3 +5,5 @@ the difference in size is not a difference with Christ but with our experience o
 if we only experience Him as the sin offering dealing with our sin we will have a small
 offering, but if we experience Him as the sin offering overcoming Satan, the world, and the
 struggle for power, we will have a larger offering.
+
+the sin offering is without blemish signifying Christ who is without sin.
