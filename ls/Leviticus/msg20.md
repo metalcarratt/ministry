@@ -15,3 +15,6 @@ struggle is Satan.
 the deeper meaning of sin is the law of sin, which is a spontaneous power, strength and energy to struggle with God.
 
 > do you know what the law of sin is? the law of sin is simply the spontaneous power, strength and energy to struggle with God. Something within us is living and active; it is crouching in our inner being, watching over us. Whenever we have eveb a little thought of being for God, something within rises up to take us over. This is the law of sin.
+
+
+> we should not take Christ as our sin offering in a superficial way. rather, we shuold take Him as our sin offering to a deeper extent. This will remake our entire being.
