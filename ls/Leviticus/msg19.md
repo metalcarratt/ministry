@@ -13,6 +13,6 @@ the offerer laid his hands on the offering, signifying identification with Chris
 the blood was applied to four places:
 - the veil in the holy of holies, allowing us access to God
 - on the horns of the incense altar, enabling us to pray to God
-- on the horns of the burnt offering altar, effective to redeem us
+- on the horns of the burnt offering altar, effective to redeem us (righteousness??)
 - poured out at the base of the altar, giving us peace in our conscience (visible to us as the offerer)
 
