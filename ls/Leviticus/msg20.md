@@ -1,3 +1,5 @@
+#### the power struggle
+
 sin involves five things:
 - the flesh
 - sin
@@ -18,3 +20,8 @@ the deeper meaning of sin is the law of sin, which is a spontaneous power, stren
 
 
 > we should not take Christ as our sin offering in a superficial way. rather, we shuold take Him as our sin offering to a deeper extent. This will remake our entire being.
+
+#### based on the burnt offering
+
+slaughtered at the place of the burnt offering and all burned up outside the camp at the place the ashes of the burnt offering were placed. this means the basis for the sin offering is God's acceptance of the burnt offering. as the burnt offering, Christ was absolute for God. the power struggle within us caused by sin makes us for ourselves and not for good. anything we do, even good things such as loving others, offering a prayer or speaking a testimony can be a sin if we do it for ourselves or out of ourselves. for example, the Lord said that the pharisees make long prayers for a pretense, disfigure their faces to appear to be fasting, and make a trumpet when they give offerings. this is to do "righteous deeds" for ourselves and our of ourselves. this is not absolute for God, is due to the power struggle within us between God and Satan, and is sin.
+
