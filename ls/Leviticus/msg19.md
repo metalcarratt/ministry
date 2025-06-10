@@ -7,3 +7,12 @@ offering, but if we experience Him as the sin offering overcoming Satan, the wor
 struggle for power, we will have a larger offering.
 
 the sin offering is without blemish signifying Christ who is without sin.
+
+the offerer laid his hands on the offering, signifying identification with Christ.
+
+the blood was applied to four places:
+- the veil in the holy of holies, allowing us access to God
+- on the horns of the incense altar, enabling us to pray to God
+- on the horns of the burnt offering altar, effective to redeem us
+- poured out at the base of the altar, giving us peace in our conscience (visible to us as the offerer)
+
