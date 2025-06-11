@@ -12,3 +12,5 @@ God. this is like a fruit tree that needs a certain environment to grow. the fru
 tree is our inward nature of sin and the environment that helps it to grow is our
 living not for God. the fruit of these two are the outward sins we commit.
 
+a number of particular sins mentioned in lev 5:
+- not testifying what we know
