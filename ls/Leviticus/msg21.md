@@ -3,6 +3,8 @@
 the sin offering deals with our nature of sin, the tresspass offering deals with our
 acts of sin.
 
+the lord as the lamb of God took away the sin of the world. this is both the inward and the outward sin.
+
 if the offerer brought two pigeons or fine flour the tresspass offering was composed
 of both the sin offering and the burnt offering. this signifies that our outward
 sins are a result of our inward nature of sin and our living that is not fully for
