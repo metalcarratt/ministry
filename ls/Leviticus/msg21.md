@@ -13,4 +13,8 @@ tree is our inward nature of sin and the environment that helps it to grow is ou
 living not for God. the fruit of these two are the outward sins we commit.
 
 a number of particular sins mentioned in lev 5:
-- not testifying what we know
+- not testifying what we know: we must testify of the truth we know
+- not touching anything of death
+- not touching the uncleanness of man (the natural life)
+
+the last two points show that in our relationships with other saints we shouldnt be political, buddy-buddy, or allow anything of death to affect us.
