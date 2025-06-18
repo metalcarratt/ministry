@@ -16,3 +16,4 @@ not serving as priests we have no right to enjoy the meal offering.
 >
 > regarding the priestly service, we need to consider our situation and ask ourselvea where we are. the prophet haggai charged the people of israel to consider their ways. we all need to reconsider our way. what kind of believers are we? are we priestly believers or common believers?
 
+> We need to remember that the first three offerings--the burnt offering, the meal offering and the peace offering--bring us into the light. In the light we are enlightened to see our sin and our sins. This is what we need.
