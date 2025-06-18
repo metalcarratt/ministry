@@ -10,4 +10,4 @@ slave. gal 5:16 "walk by this rule".
 >
 > the rule of the new creation will regulate us in the time we go to bed at night and rise in the morning. on the Lord's Day in particular, the rule of the new creation will urge us to rise up a little earlier, pray for the meeting, and come to the meeting early to meet with the Lord and worship Him.
 >
-> the reward for walking according to the rule of the new creation is mercy and peace. I can testify that when I walk according to this rule, I have mercy and peace. If we walk according to the rule of the new creation in the way we prrpare for and come to the meeting on the Lord's Day, we will receive mercy and peace.
+> the reward for walking according to the rule of the new creation is mercy and peace. I can testify that when I walk according to this rule, I have mercy and peace. If we walk according to the rule of the new creation in the way we prepare for and come to the meeting on the Lord's Day, we will receive mercy and peace.
