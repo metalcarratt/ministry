@@ -20,5 +20,7 @@ the law, the sin offering is:
 - in a holy place, the court (enjoyed in the realm of the church)
 - whoever touches the flesh is holy (the effect on our nature through faith)
 - the garment upon which the blood is splattered washed in a holy place (we should not consider the blood common, and should deal with our daily walk)
-- the vessel it is boiled in broken (those who preach christ need their vessel brokwn)
-- 
+- if boiled in an earhten vessel the vessel to be broken (those who preach christ need their vessel broken)
+- if boiled in a bronze vessel the vessel to be scoured and rinsed (those who have been enlightened and judged still need dealing so as not to preach christ in a natural way)
+- every male eating of it (the portion of the stronger ones)
+- the sin offering for expiation not eaten (there is a portion for God and a portion for us)
