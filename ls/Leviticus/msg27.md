@@ -12,4 +12,8 @@
   - not eaten if it touches anything unclean (our enjoyment must be kept from uncleanness)
   - the person eating it should also be clean
   - if an unclean person eats of it they are cut off from their people (partaking of the Lord's table while in sin, as in 1 cor)
+  - not eating the fat (the top portion always belongs to God)
+  - if it touched anything that died naturally not to be eaten (stay away from death)
+  - the blood not eaten (regard only the blood of Christ)
+  - the person who eats blood to be cut off from the people (not making the blood of Christ a common thing)
   - 
