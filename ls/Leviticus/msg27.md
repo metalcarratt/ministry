@@ -16,4 +16,9 @@
   - if it touched anything that died naturally not to be eaten (stay away from death - this also makes a distinction between Christ's death, which is holy and an offering to God, distinct from natural or satanic death, which is abhorent to God)
   - the blood not eaten (regard only the blood of Christ)
   - the person who eats blood to be cut off from the people (not making the blood of Christ a common thing)
-  - 
+  - the fat is offered to God and the breast is the portion of the priests, enjoyed as a wave offering (the top portion belongs to God but we enjoy His love in resurrection)
+  - the right thigh given to the priests as a heave offering (we enjoy Christ's strength in ascension)
+  - the breast and thigh the perpetual due of the priests
+  - the portion of those anointed (the portion of those anointed to be priests)
+
+
