@@ -11,3 +11,5 @@ consecrate ourselves to the lord.
 details:
 - at the entrance of the tent of meeting (for the church life)
 - washed by moses with water (washed by Christ with the Spirit)
+- aaron dressed with the high priest garments (Christ adorned with the excellent divine and human attributes)
+- aaron's sons dressed with the priestly garments (Christ dressing us with His divine attributes to be expressed through our human virtues). to serve God as a priests, going out to people, we need the proper expression. not only Christ adorns us, sometimes we adorn one another to serve properly as priests.
