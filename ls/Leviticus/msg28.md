@@ -15,4 +15,6 @@ details:
 - aaron's sons dressed with the priestly garments (Christ dressing us with His divine attributes to be expressed through our human virtues). to serve God as a priests, going out to people, we need the proper expression. not only Christ adorns us, sometimes we adorn one another to serve properly as priests.
 - anointing the tabernacle, the altar and the laver (our service as priests is in, for and as the church; the cross is the place where Christ became all the offerings as our provision; the laver is where we are washed of the Spirit; by anointing these three we are sanctified to be priests)
 > one day, perhaps recently, you prayed, "Lord, I give myself to You absolutely." As long as you have prayed such a prayer, you have consecrated yourself to the Lord. God has accepted your consecration and has ordained you, filling your empty hands with Christ.
-
+- aaron anointed to sanctify Him (Christ anointed)
+- the bull as our sin offering (the strong and rich Christ to deal with sin, Satan, the natural man, the world and the power struggle)
+- the ram as our burnt offering (the strong Christ to make us absolute for God)
