@@ -16,4 +16,5 @@ The burnt offering
 
 The meal offering
 - [Message 11](msg11.md) - fine flour, oil, frankincense
-- 
+- [Message 12](msg12.md) - mingled and anointed with oil; pray-reading being the main way for us to enjoy the meal offering
+- [Message 13](msg13.md) - no leaven, no honey, but salt; the type of the meal offering
