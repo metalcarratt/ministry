@@ -23,7 +23,7 @@ The meal offering
 - [Message 16](msg16.md) - the meal offering church life seen in 1 Corinthians
 
 The peace offering
-- [Message 17](msg17.md) - the fattened calf; different kinds showing even the most pitiful can enjoy peace
+- [Message 17](msg17.md) - the fattened calf; different kinds showing even the most pitiful one can enjoy peace
 
 The sin offering
 - [Message 18](msg18.md) - Christ who dealth with sin, the flesh, Satan, the world, and the power struggle with God
@@ -31,4 +31,4 @@ The sin offering
 - [Message 20](msg20.md) - the power struggle; based on the burnt offering
 
 The tresspass offering
-- [Message 21](msg21.md) - dealing with sins; composed of the sin offerig and burnt offering (tree with environment and fruit)
+- [Message 21](msg21.md) - dealing with sins; composed of the sin offering and burnt offering (tree with environment and fruit)
