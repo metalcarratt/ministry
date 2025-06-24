@@ -18,3 +18,17 @@ The meal offering
 - [Message 11](msg11.md) - fine flour, oil, frankincense
 - [Message 12](msg12.md) - mingled and anointed with oil; pray-reading being the main way for us to enjoy the meal offering
 - [Message 13](msg13.md) - no leaven, no honey, but salt; the type of the meal offering
+- [Message 14](msg14.md) - the offerings are our food, and we take the food by releasing our spirit over the Bible
+- [Message 15](msg15.md) - both Christ and the church are a meal offering
+- [Message 16](msg16.md) - the meal offering church life seen in 1 Corinthians
+
+The peace offering
+- [Message 17](msg17.md) - the fattened calf; different kinds showing even the most pitiful can enjoy peace
+
+The sin offering
+- [Message 18](msg18.md) - Christ who dealth with sin, the flesh, Satan, the world, and the power struggle with God
+- [Message 19](msg19.md) - the more we experience Him dealing with negative things the greater our offering; the blood allows us access to God, to pray to God, redeems us, and appeases our conscience
+- [Message 20](msg20.md) - the power struggle; based on the burnt offering
+
+The tresspass offering
+- [Message 21](msg21.md) - dealing with sins; composed of the sin offerig and burnt offering (tree with environment and fruit)
