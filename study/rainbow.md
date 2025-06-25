@@ -4,7 +4,7 @@ Chapter 12 of 27
 
 Section 3 of 4
 Life-study of Ezekiel
-# THE APPEARANCE OF THE MAN ON THE THRONE
+## THE APPEARANCE OF THE MAN ON THE THRONE
 Ezekiel 1:27 says, “I saw as the color of amber, as the appearance of fire round about within it, from the appearance of his loins even upward, and from the appearance of his loins even downward, I saw as it were the appearance of fire, and it [130] had brightness round about.” Here we see that the appearance of the man on the throne has two aspects: From His loins upward He looks like electrum, and from His loins downward He looks like fire. Why does His upper part look like electrum, and why does His lower part look like fire? The upper part of a man, from his loins to his head, is the part of feeling, of sensation. This part signifies his nature and disposition. According to His nature and disposition the Lord Jesus on the throne looks like electrum. The lower part of a man’s body is for moving. The appearance of fire from the loins downward signifies the Lord’s appearance in His move.
 
 When the Lord comes to us, He first comes as fire. When He stays with us, He becomes electrum. Furthermore, whenever the Lord moves through us, He moves like fire to burn, enlighten, and search. After this burning something will remain, and that will be the electrum—a mixture of gold and silver signifying the Lamb-God, the redeeming God.
@@ -15,7 +15,7 @@ Eventually, we need to realize that nothing good dwells in us. Like Paul, we sho
 
 No matter how clear our sky is and no matter how much we may have the throne in our sky, we still need the Lord’s presence as the fire which enlightens, searches, and burns so that we may have Him remaining in us as electrum. This is the Lord’s visitation with us, and this is the Lord’s move with us and on us. It is a great blessing to be under the Lord’s [131] visitation. The Lord comes to us as a consuming fire, and we gain Him as electrum. Often there is no need for us to declare that we have such a God. When others are with us, they will be able to sense that we have the electrum, the redeeming God, remaining with us. They may also have the impression that we are not light but are persons of weight. We are weighty with electrum, weighty with the Lamb-God.
 
-# HAVING A RAINBOW
+## HAVING A RAINBOW
 
 At this point the four living creatures are not only for the manifestation of the Lord and not only for the move of the Lord but also for the administration, the government, of the Lord. The Lord is among them and above them for His manifestation, move, and government. This is truly wonderful.
 
