@@ -4,6 +4,8 @@ Intro
 - [Message 1](msg01.md) - Leviticus is God's speaking from within the tabernacle
 - [Message 2](msg02.md) - Leviticus is a cook book
 
+## The offerings
+
 The burnt offering
 - [Message 3](msg03.md) - Christ as the One who came to do the will of God
 - [Message 4](msg04.md) - slaughtered, skinned, cut into pieces, washed
@@ -32,3 +34,16 @@ The sin offering
 
 The tresspass offering
 - [Message 21](msg21.md) - dealing with sins; composed of the sin offering and burnt offering (tree with environment and fruit)
+- [Message 22](msg22.md) - four particular sins: not testifying, contacting death, expressing the natural man, speaking rashly aaprt from the Lord 
+
+## The laws of the offerings
+
+The law of the burnt offering
+- [Message 23](msg23.md) - kept burning continually; adding wood every morning; consecration as the foundation for us to enjoy God
+
+The law of the meal offering
+- [Message 24](msg24.md) - in the church; for the priests (we must be priests in reality)
+
+The law of the sin offering
+- [Message 25](msg25.md) - the "rule of the new creation"; holy, based on burnt offering, eaten in a holy place, making us holy, the need to be broken (and others)
+
