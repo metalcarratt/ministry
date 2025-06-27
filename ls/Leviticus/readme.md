@@ -47,3 +47,13 @@ The law of the meal offering
 The law of the sin offering
 - [Message 25](msg25.md) - the "rule of the new creation"; holy, based on burnt offering, eaten in a holy place, making us holy, the need to be broken (and others)
 
+The law of the tresspass offering
+- [Message 26](msg26.md) - the law of the new life; if we minister Christ to others we will also enjoy Him
+
+The law of the peace offering
+- [Message 27](msg27.md) - thanksgiving and vow or freewill offering
+
+## The consecration of the priests
+- [Message 28](msg28.md) - consecration - washed, clothed, anointed, hands filled
+- [Message 29](msg29.md) - the burnt offering and sin offering offered daily; the blood on the ears, thumb and toe
+
