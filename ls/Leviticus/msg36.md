@@ -17,3 +17,6 @@ shoulders.
 divided hooves are those who discern between earthly and heavenly things, things of God and things of Satan, spiritual vs fleshly, of the new man vs the old man.
 
 to chew the cud is to take the word of God with much consideration and reconsideration. one way of doing this is while pray reading the word in the morning.
+
+### fish with fins and scales
+these fish live in the sea (the world) but they have fins with which to move freely (not together with the current of the world) and scales to prevent them from being salted by the world.
