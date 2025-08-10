@@ -20,3 +20,7 @@ to chew the cud is to take the word of God with much consideration and reconside
 
 ### fish with fins and scales
 these fish live in the sea (the world) but they have fins with which to move freely (not together with the current of the world) and scales to prevent them from being salted by the world.
+
+### birds that have wings for flying and feed on seeds
+the wings are for flying far above the world, and the feeding on seeds is feeding on the things of life. on the contrary, birds that feed on carcasses, things of death, are unclean. if we contact this kind of person we may eventually become the same.
+
