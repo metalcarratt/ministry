@@ -24,3 +24,5 @@ these fish live in the sea (the world) but they have fins with which to move fre
 ### birds that have wings for flying and feed on seeds
 the wings are for flying far above the world, and the feeding on seeds is feeding on the things of life. on the contrary, birds that feed on carcasses, things of death, are unclean. if we contact this kind of person we may eventually become the same.
 
+### insects with wing and jointed legs for jumping
+wings and legs for jumping are for leaving the worldly, sinful or fleshly things. insects that do not have these cannot leave the world.
