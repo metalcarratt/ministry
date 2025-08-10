@@ -26,3 +26,11 @@ the wings are for flying far above the world, and the feeding on seeds is feedin
 
 ### insects with wing and jointed legs for jumping
 wings and legs for jumping are for leaving the worldly, sinful or fleshly things. insects that do not have these cannot leave the world.
+
+## those that are not clean
+- those without discernment (non cloven hooves or paws)
+- those who cannot move freely in the world (no fins and scales)
+- those that feed on carcasses (death)
+- insects that creep and cannot leave the earth
+- all other creeping things, which signify those in contacts with demons and who cling to the world
+  
