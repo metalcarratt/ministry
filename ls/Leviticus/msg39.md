@@ -7,3 +7,5 @@ without but becomes something from within.
 miriam (rebellion against moses), gehazi, elishas servant (rebellion against elisha),
 and uzziah who tried to offer incense (rebellion against God's ordination for the
 priests), and three examples of leprosy issuing from rebellion.
+
+sin came into being through Satan. it was his invention through his rebellion against God. actually all sin is rebellion. sin is a matter of leprosy.
