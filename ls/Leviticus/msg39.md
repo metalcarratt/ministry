@@ -9,3 +9,8 @@ and uzziah who tried to offer incense (rebellion against God's ordination for th
 priests), and three examples of leprosy issuing from rebellion.
 
 sin came into being through Satan. it was his invention through his rebellion against God. actually all sin is rebellion. sin is a matter of leprosy.
+
+details:
+- hair turning white - weakenkng of the strength to live
+- deeper than the skin - the skn is hidden/covered and not confessed
+- the skin being white, 
