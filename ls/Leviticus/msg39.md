@@ -13,4 +13,8 @@ sin came into being through Satan. it was his invention through his rebellion ag
 details:
 - hair turning white - weakenkng of the strength to live
 - deeper than the skin - the skn is hidden/covered and not confessed
-- the skin being white, 
+- the skin becoming white, not deeper, hair not white - positvely our wrong behaviour not covered but confessed and our strength remaining
+- diseased spot dading - the healing power of Christ's life in grace
+- white swelling (rising), eruptions, bright spots - unruliness, friction with others, pride, self exaltation, lawlessness
+- raw flesh - ?
+- breaking out to cover the whole body from head to toe being clean - this is because it is fully exposed through a thorough confession to God.
