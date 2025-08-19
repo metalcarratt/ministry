@@ -29,8 +29,8 @@ On God's side He heals us, but on our side we need to seek His cleansing. This i
 - cedar wood - the Lord's uplifted humanity
 - hyssop - the Lord's humanity that was willing to be made so low
 - scarlet - the shedding of blood (also kingly)
-- one bird killed over an earthenware vessel (humanity) filled with living water (the Spirit) - Heb 9:13-14, Christ offering up Himself in the flesh tbrough the eternal Spirit.
-- the other bird, cedar, hyssop, scarlet dipped in blood and sprinking the leper 7 times - the subjective experience of the Lord's sufferings in shedding His blood in His noble but also lowly humanity and His death, resurrection, ascension and glorification.
+- one bird killed over an earthenware vessel (humanity) filled with living water (the Spirit) - Heb 9:13-14, Christ offering up Himself in the flesh through the eternal Spirit.
+- the other bird, cedar, hyssop, scarlet (probably tied together and) dipped in blood and sprinking the leper 7 times - the subjective experience of the Lord's sufferings in shedding His blood in His noble but also lowly humanity and His death, resurrection, ascension and glorification.
 - the live bird going free - soaring in ascension
 - the leper shaving all his hair, the hair of his head (glory), beard (honor), eyebrows (beauty) and all his hair on his body (strength)
 - bathing in water - whole being buried in the death waters
