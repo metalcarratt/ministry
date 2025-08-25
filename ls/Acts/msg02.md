@@ -7,6 +7,7 @@ the Lord was standing while Stephen was being stoned, possibly remarking that wh
 being in ascension means Christ has power and authority.
 
 > All authority has been given to Me in heaven and on earth.
+
 Matt. 28:18
 
 in Acts the Lord is doing a work in ascension. His work of propogation is a work 
