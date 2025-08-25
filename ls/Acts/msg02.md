@@ -14,3 +14,9 @@ in ascension. it is also by the spirit, particularly the economical Spirit.
 
 > We need to realise that the propogation of the resurrected Christ is by the Spirit, in particular, the economical Spirit.
 
+subject:
+- ascended Christ
+- propogating (producing churches)
+- by the Spirit (economical)
+- through the disciples (witnesses)
+- as the kingdom of God
