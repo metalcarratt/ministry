@@ -7,3 +7,5 @@ thus after regenerating them He must have come to re speak so that they could un
 the kingdom of God is the life of God. before regeneration the disciples did not have
 this life, so they could not understand this kingdom. but after having received this life
 they could now know and understand this kingdom.
+
+the disciples needed a dispensational transfer from caring about the kingdom of Israel to the kingdom of God, from Moses and the law to Jesus Christ. they had witnessed His death, burial and resurrection. Now. instead of being law keepers they should become Jesus witnesses. Many Christians today have an Old Testament concept that they need to be law keepers rather than Jesus witnesses.
