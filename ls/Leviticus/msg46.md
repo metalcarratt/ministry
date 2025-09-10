@@ -16,3 +16,5 @@ to come before God, aaron needed:
 one goat was killed on the altar for sin, the other goat was sent away to azazel, who is Satan. God does not only forgive and take away our sin but also sends it back to Satan, the source of our sin. in eternity in the lake of fire, Satan will bear the responsibility for all our sins of which he is the source.
 
 aaron brought coals from the altar and burned incense. negatively Christ solved our problem before God, but positively He also becomes the sweet smelling savor for our acceptance by God. before we had the unclean issues, now we have Christ as our sweet savor. this is all based on His death.
+
+the blood sprinkled seven times before and on the propitiatory cover signifies the complete and eternal efficacy of Christ's redemption for us.
