@@ -10,3 +10,11 @@ enjoying the holy things in holiness - we must be careful how we enjoy Christ.
 both are a kind of consecration, but a freewill offering is weaker and may be voided but a vow is stronger.
 
 all of a vow, a freewill offering and a peace offering can become a burnt offering. this is because a burnt offering is related to being absolute for God. sometimes we sense our lack of absoluteness and so make up our mind to be different, making a vow before the Lord which becomes a burnt offering. other times we more casually realise our lack of absoluteness and make a choice to be absolute. at still other times, when we are at the Lords table, enjoying the Lord as our peace offering, the Lord touches us and we spontaneously give ourselves to Him. this is a peace offering becoming a burnt offering.
+
+not offering an animal with a limb too long or too short. to be too long or too short is to be imbalanced in our experience of Christ. if our experience of Christ is proper and balanced we will bear fruit. some focus too much on enjoying Christ but do not go out to bear fruit. this is too long. others have not enjoyed Christ enough so they cannot bear fruit. this is too short.
+
+anything with testicles broken, bruised, crushed, cut, not to be offered. again, we need to bear fruit.
+
+anything obtained from a foreigner not to be offered. we should not worship God with anything of the Gentiles.
+
+waiting till the eigth day to offer a newborn calf. this means our experience needs to mature until we reach the stage of resurrection.
