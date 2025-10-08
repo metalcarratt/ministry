@@ -26,3 +26,16 @@ as our food. He is the sinless One and as we enjoy Him we are strengthened to
 live a sinless life.
 
 > the main thing we enjoy in the Passover is Christ as our Lamb. In the feast of unleavened bread, the main thing we enjoy is Christ as the unleavened bread, as our life supply without sin. Now for our whole Christian life we live day by day on this bread that is without sin.
+
+### feast of first fruits
+
+within three days of the passover, signifying Christ's resurrection. the offering was not a single stalk but a sheaf, typifying first the old testament saints who rose from their tombs when Jesus died and second, us who have all been resurrected with Christ on the day of His resurrection and brought with Him into the heavenlies to be presented before God as a corporate sheaf offering.
+
+a wave offering, signifying resurrection.
+
+offered together with a burnt offering, a meal offering and a drink offering. the drink offering was Christ's pouring Himself out for God. Our life today needs to be a life absolute for God as a burnt offering, supported by the meal offering as our food. then to satisfy the drinking God we need to be poured out for Him.
+
+no bread eaten until the sheaf was presented signifies God is the first to enjoy Christ and then we can enjoy Him as our meal offering.
+
+the fourth offering is pentecost, signifying the poured out Spirit. these four symbolise the Lord's death (passover), resurrection (firstfruits) and pouring out (pentecost) together with the sinless life supply (unleavened bread).
+
