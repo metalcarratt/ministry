@@ -13,4 +13,4 @@ other mentions of stone in the Bible:
 - Isaiah says He is the foundation stone laid in Zion, a tried stone, a precious stone.
 - In Zechariah He is the head stone with shoutings of "grace, grace to it"
 - in 1 Corinthians Paul says we build upon the foundation with gold, silver and precious stone.
-- in revelation God is sitting on tbe throne with the appearance he new jerusalem 
+- in revelation God is sitting on the throne with the appearance of Jasper and  the new jerusalem has twelve foundations of precious stones.
