@@ -26,3 +26,25 @@ for the Jews who are saved by the Lord's second coming, this is fulfilled in:
 Zech. 12:10
 > And I will pour out on the house of David and on the inhabitants of Jerusalem the Spirit of grace and of supplications; and they will look upon Me, whom they have pierced; and they will wail over Him with wailing as for an only son and cry bitterly over Him with bitter crying as for a firstborn son.
 
+### the feast of tabernacles
+
+the new heaven and new earth in the millenium and as a foretaste of the new jerusalem, the eternal tabernacle of God with man.
+
+for seven days, a full course of time, signifying the 1000 years.
+
+bringing offerings and resting - enjoying Christ as food and enjoying true rest in God.
+
+after the harvest - after God has completed His work on the earth.
+
+taking the fruit of beautiful trees, branches of palm and evergreen trees and rejoicing - the beautiful rich humanity of the Lord expressed through His people
+
+Lev. 23:40
+> And on the first day you shall take for yourselves the product of stately trees, branches of palm trees and boughs of leafy trees and willows of the brook; and you shall rejoice before Jehovah your God for seven days.
+
+dwelling in booths - recognition that apart from God and the New Jerusalem as our eternal home, we have no dwelling place on this earth and are but sojourners.
+
+Lev. 23:42
+> You shall dwell in booths seven days — all who are native in Israel shall dwell in booths —
+
+Lev. 23:43
+> So that your descendants may know that I made the children of Israel to dwell in booths when I brought them out of the land of Egypt; I am Jehovah your God.
