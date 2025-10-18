@@ -1,0 +1,1 @@
+> it may seem that kings and presidents rule the earth and that the Lord Jesus is not on the throne. Nevertheless, this one who seems not to be on the throne is the ruler of all the enthroned ones. Today the entire world is under the Lord's ruling. He is truly the Leader, the chief Ruler.
