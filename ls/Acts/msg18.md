@@ -5,3 +5,5 @@
 
 > before we were saved, we were like mice running loose. But the Lord Jesus exercised His sovereign authority to set up a trap to catch us. The faster we ran, the easier it was for Him to catch us. In this matter He is sovereign.
 
+
+> to give repentance and forgiveness of sins to God's chosen people requires Christ to be exalted as a ruling Leader and Savior. His sovereign ruling causes and leads God's chosen people to repent,and His salvation based on His redemption affords them forgiveness of sins.
