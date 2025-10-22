@@ -68,12 +68,21 @@ The law of the peace offering
 
 ## The holy living of God's holy people
 
+Dealing with uncleanness
 - [Message 36](msg36.md) - the uncleanness of contacting people signified by the eating of animals
 - [Message 37](msg37.md) - the uncleanness of death
-- [Message 38](msg38.md) - the uncleanness of human birth
-- [Message 39](msg39.md) - the uncleanness of leprosy, our nature
+- [Message 38](msg38.md) - the uncleanness of human birth, our nature
+- [Message 39](msg39.md) - the uncleanness of leprosy
+  - [Message 40](msg40.md) - details concerning leprosy
+  - [Message 41](msg41.md) - leprosy in a garment (the outward conduct of our human living)
+  - [Message 42](msg42.md) - the cleansing of a leper
+  - [Message 43](msg43.md) - the cleansing of a leper (2)
+  - [Message 44](msg44.md) - leprosy in a house (a local church)
+- [Message 45](msg45.md) - the uncleanness of the discharges of our body (everything that comes out of our natural being)
 
-
+Propitiation
+- [Message 46](msg46.md) - propitiation - "to cover" - in the New Testament our sins are not covered but taken away by redemption
+- [Message 47](msg47.md) - sin offering resulting in burnt offering, a living for God
 
 
 
