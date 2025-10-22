@@ -4,7 +4,9 @@ Intro
 - [Message 1](msg01.md) - Leviticus is God's speaking from within the tabernacle
 - [Message 2](msg02.md) - Leviticus is a cook book
 
-## The offerings
+## The offerings and the priesthood
+
+### the offerings
 
 The burnt offering
 - [Message 3](msg03.md) - Christ as the One who came to do the will of God
@@ -36,7 +38,7 @@ The tresspass offering
 - [Message 21](msg21.md) - dealing with sins; composed of the sin offering and burnt offering (tree with environment and fruit)
 - [Message 22](msg22.md) - four particular sins: not testifying, contacting death, expressing the natural man, speaking rashly aaprt from the Lord 
 
-## The laws of the offerings
+### The laws of the offerings
 
 The law of the burnt offering
 - [Message 23](msg23.md) - kept burning continually; adding wood every morning; consecration as the foundation for us to enjoy God
@@ -53,7 +55,28 @@ The law of the tresspass offering
 The law of the peace offering
 - [Message 27](msg27.md) - thanksgiving and vow or freewill offering
 
-## The consecration of the priests
+### The consecration of the priests
+
 - [Message 28](msg28.md) - consecration - washed, clothed, anointed, hands filled
 - [Message 29](msg29.md) - the burnt offering and sin offering offered daily; the blood on the ears, thumb and toe
+- [Message 30](msg30.md) - the hearing; the hands filled; other details
+- Message 31 - initiation of the priestly service
+- [Message 32](msg32.md) - the atmosphere of the meetings depends on our actual experience of Christ
+- [Message 33](msg33.md) - Nadab and Abihu offering strange fire
+- [Message 34](msg34.md) - After the judgment commanded to eat the meal offering - this is mercy following judgment
+- Message 35 - concluding word on the offerings
+
+## The holy living of God's holy people
+
+- [Message 36](msg36.md) - the uncleanness of contacting people signified by the eating of animals
+- [Message 37](msg37.md) - the uncleanness of death
+- [Message 38](msg38.md) - the uncleanness of human birth
+- [Message 39](msg39.md) - the uncleanness of leprosy, our nature
+
+
+
+
+
+
+
 
