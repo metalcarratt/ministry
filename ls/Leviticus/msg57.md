@@ -10,3 +10,7 @@ of the church life it is not so easy. if we do not recover it before the milleni
 lose it for the millenium. 
 
 > we need to consider losing the church life more serious than losing the enjoyment of Christ.
+
+those who sell a house not in a walled city can have it redemmed - this concerns those who live in a place without a proper chuch life.
+
+the Levites who sell a house in a walled city can get it back, and the fields of a Levite cannot be sold at all. this signifies that if we are adequately engaged in the service of God in the church, our enjoyment of the Christ and the church life will be protected. this should encourage us to serve more, so that our enjoyment of the Lord and the church life can be preserved.
