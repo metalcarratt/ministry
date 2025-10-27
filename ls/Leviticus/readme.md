@@ -85,7 +85,16 @@ Propitiation
 - [Message 47](msg47.md) - sin offering resulting in burnt offering, a living for God
 - [Message 48](msg48.md) - take care of the sacrifices and the blood
 
+The holy living of the holy people
+- [Message 49](msg49.md) - not following the customs of the people around us, offering the peace offering, no mixture
 
+The holy living of the priests
+- [Message 50](msg50.md) - not defiled by death; not making their hair bald, cutting the sides of their beard, cutting their flesh; defects
+- [Message 51](msg51.md) - rules concerning who can eat the holy things; the vow and free-will offering
+
+The Sabbath and the feasts
+- [Message 52](msg52.md) - the Sabbath, the Passover, the feast of unleavened bread, the feast of first fruits
+- [Message 53](msg53.md) - the feast of Pentecost
 
 
 
