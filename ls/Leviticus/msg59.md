@@ -9,3 +9,11 @@ God's word of warning to the children of Israel.
 3. revering God's sactuary. this is to regarding with reverance God's dwelling place, the church
 
    
+the blessings:
+1. sending the rain (the Spirit) in its seasons
+2. the land yielding produce and the people dwelling securely
+3. peace from threats, swords or beasts
+4. chasing the enemies. in the principle of the Body, the greater the coordination the more enemies each can chase
+5. fruitfulness in multiplying
+6. God dwelling among them
+
