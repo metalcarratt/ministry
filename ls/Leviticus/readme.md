@@ -83,6 +83,7 @@ Dealing with uncleanness
 Propitiation
 - [Message 46](msg46.md) - propitiation - "to cover" - in the New Testament our sins are not covered but taken away by redemption
 - [Message 47](msg47.md) - sin offering resulting in burnt offering, a living for God
+- [Message 48](msg48.md) - take care of the sacrifices and the blood
 
 
 
