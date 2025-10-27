@@ -17,3 +17,7 @@ the blessings:
 5. fruitfulness in multiplying
 6. God dwelling among them
 
+
+God's punishment to those who continue in the flesh:
+- the first level being sudden terror, consumming disease and the enemy taking what has been sown, fleeing before the enemies
+- the second level being sevenfold discipline, the heavena giving no rain and the earth becoming hard so nothing can grow
