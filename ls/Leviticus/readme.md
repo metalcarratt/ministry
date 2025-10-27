@@ -95,6 +95,15 @@ The holy living of the priests
 The Sabbath and the feasts
 - [Message 52](msg52.md) - the Sabbath, the Passover, the feast of unleavened bread, the feast of first fruits
 - [Message 53](msg53.md) - the feast of Pentecost
+- [Message 54](msg54.md) - the feast of the blowing of trumpets, the feast of propitiation, the feast of tabernacles
+
+The service of the priests
+- [Message 55](msg55.md) - keeping the lamps burning continually and arranging new loaves of bread every Sabbath
+
+The Sabbath and the feasts (2)
+- [Message 56](msg56.md) - the Sabbath year and the Jubilee
+- [Message 57](msg57.md) - the Jubilee - recovering fields that were sold; recovering a house in a walled city
+- [Message 58](msg58.md) - the Jubilee - caring for the brothers
 
 
 
