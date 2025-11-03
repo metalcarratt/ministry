@@ -1,2 +1,4 @@
 principles of gospel preaching:
 - the scattered saints spread the gospel, but those who receieved did not receieve the economical Spirit until the apostles came from jerusalem and laid hands on them. this is the principle of the Body, that those involved in the gospel would not raise up something individualistic. today it is easier to open a church than a restaurant; this is a deplorable situation.
+- after philip preached to the samaritans he was told by the Spirit to leave and take a southern route. after preaching to the ethiopian he was caught away. this is the principle that we should not seek to remain somewhere where there has been a church raised up by us.
+> No work should remain in our hands. To be caught away simply means not to keep a work in our hands. No matter how much we have done or how much we have accomplished, we must be ready to leave our work to the church, to the saints, and to the Lord, and allow the Spirit to carry us away.
