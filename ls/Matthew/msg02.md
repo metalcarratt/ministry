@@ -20,3 +20,8 @@ Abraham was also required to give back Isaac. even past spiritual experiences of
 represents the promise
 
 > Sarah, wanting to help God fulfill His promise, made a proposal to Abraham. ... This is the natural concept, and it is quite tempting. Many times our natural concept has some proposal to get us out of the spirit. Often our natural concept says, "Here is a good source. Do it this way!" But such a proposal will surely keep us from God's promise.
+
+Abraham took Sarah's proposal and the result was Ishmael, who frustrated God's promise. Don't produce Ishmaels!
+
+> Terminate yourself! Did you not cross over that great river, the Euphrates? When you were called out of Babel you crossed that great river and you were buried there. You were terminated there. Do not live by yourself or do anything by yourself. Instead, you should say, "Lord, I am nothing. Without You, I can do nothing. Lord, if You don't do anything, then I won't do anything. If You rest. I rest. Lord, I put my trust in You." This is easy to say, but difficult to practice in our daily life.
+
