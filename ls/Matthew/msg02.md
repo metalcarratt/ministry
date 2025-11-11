@@ -15,3 +15,8 @@ Abraham was also required to give back Isaac. even past spiritual experiences of
 >
 > The fallen race always likes to do something, to work and exert some effort. But God says, "Come out of that. You are the called race. Don't try, don't do, and don't work anymore! Forget your past. Forget what you are, what you can do, and what you have. Forget everything, and put your full trust in Me. I am your good land. Live in Me, and live by Me." These are the real Abrahams, the real Galatians. As the sons of God, they trust in God and forget about themselves. ... Today our walk and our living must be by faith in Christ. If so, then, as heirs of God's promise, as those who inherit the promise of the Spirit, we shall participate in Christ as God's blessing.
 
+## isaac
+
+represents the promise
+
+> Sarah, wanting to help God fulfill His promise, made a proposal to Abraham. ... This is the natural concept, and it is quite tempting. Many times our natural concept has some proposal to get us out of the spirit. Often our natural concept says, "Here is a good source. Do it this way!" But such a proposal will surely keep us from God's promise.
