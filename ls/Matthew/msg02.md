@@ -25,3 +25,6 @@ Abraham took Sarah's proposal and the result was Ishmael, who frustrated God's p
 
 > Terminate yourself! Did you not cross over that great river, the Euphrates? When you were called out of Babel you crossed that great river and you were buried there. You were terminated there. Do not live by yourself or do anything by yourself. Instead, you should say, "Lord, I am nothing. Without You, I can do nothing. Lord, if You don't do anything, then I won't do anything. If You rest. I rest. Lord, I put my trust in You." This is easy to say, but difficult to practice in our daily life.
 
+## jacob
+
+jacob was a supplanter, always trying to get something for himself. but the more he tried the more problems he caused for himself. actually jacob did not need to do anything, for God had already chosen him and even made a promise concerning him. jacob needed to realise it was not up to him but up to God. he should have given up his trying and let God do it. this is the lesson we all need to learn as well.
