@@ -28,3 +28,5 @@ Abraham took Sarah's proposal and the result was Ishmael, who frustrated God's p
 ## jacob
 
 jacob was a supplanter, always trying to get something for himself. but the more he tried the more problems he caused for himself. actually jacob did not need to do anything, for God had already chosen him and even made a promise concerning him. jacob needed to realise it was not up to him but up to God. he should have given up his trying and let God do it. this is the lesson we all need to learn as well.
+
+> Do you realise that it is absolutely not up to you? When you hear this, you may say, "If it is not uo to me, but completely up to God, then I'll stop my seeking." Good, if you can stop your seeking,  I encourage you to do it. Tell the whole universe that you have heard that it is up to Him, and that you have stopped your seeking. If you can stop it, then it should be stopped. But I assure you, the more you stop, the better. The more you stop, the more He will stand up. 
