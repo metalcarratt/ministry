@@ -54,3 +54,5 @@ eigth son, in resurrection. committed one sin.
 
 #### solomon
 result of transgression, repentance, and gods forgiveness. he was the one who built the temple. gods forgiveness needs our transgression. once we transgress, repent, and are forgiven we can be useful to god for his building.
+
+> one day you will do something awful. All the brothers will shake their heads, unable to believe that you could have done such a thing. Nevertheless, you have done it!
