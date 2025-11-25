@@ -6,6 +6,8 @@ NZ$44.57 per person
 
 https://www.viator.com/tours/Macau-SAR/Macau-Tower-Admission-Ticket/d4460-242747P116
 
+https://www.tripadvisor.com/AttractionProductReview-g664891-d33078158-Macau_Tower_Admission_Ticket-Macau.html < $25 pp?
+
 ![ob-deck](https://dynamic-media.tacdn.com/media/photo-o/2f/97/6c/ce/caption.jpg)
 
 #### 2. TeamLab SuperNature gallery
