@@ -19,3 +19,6 @@ https://www.viator.com/tours/Macau-SAR/Macau-teamLab-SuperNature-Entry-Ticket/d4
 https://www.tripadvisor.com/AttractionProductReview-g664891-d33041781-TeamLab_SuperNature_Macao_Admission_Ticket-Macau.html < $52 pp?
 
 
+#### 3. ruins of st paul
+
+![](https://lh3.googleusercontent.com/gpms-cs-s/APRy3c8yb6d115RGpty5mg0cdXLN9eXQ1-EqW__iZSVf9CeAxSpstXE9vGqy-C3XZDxgO-vPB4BO3Xb2C4YO0dOzLaG1c8s9jTrUAv9R5h1yrYDfSJLZQqnGyI0Mhl2IqLvtUkPhO-k=s1360-w1360-h1020)
