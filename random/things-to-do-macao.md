@@ -1,4 +1,4 @@
-![unnamed](https://github.com/user-attachments/assets/86250eee-4a27-400e-a19d-e446fa03ee6a)# things to do in macao
+
 
 #### 1. observation deck
 
