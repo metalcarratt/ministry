@@ -29,6 +29,8 @@ the right place to worship god. dont say
 its okay to remain in babylon as long as
 you worship god.
 
+> You may worship God and you may walk in spirit in Babylon, but be assured that Christ could never be born into humanity through you. This requires a specific place. You must return from Babylon to Judea.
+
 the history of our salvation was all planned
 by god.
 
