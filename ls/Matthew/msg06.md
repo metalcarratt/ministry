@@ -15,3 +15,6 @@ this name is for us to:
 - to preach
 
 satan hates the name of Jesus. we get a strange feeling when we try to speak to others about this name.
+
+
+Jesus is the name given by God, but Emmanuel is the name given by those who have a certain smount of experience of Him. it is one thing for Jesus to be Jehovah, our Saviour and our Salvation. but when we a tually experience Him, then we can say that truly God is with us.
