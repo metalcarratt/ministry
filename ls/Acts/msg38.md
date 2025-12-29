@@ -1,3 +1,5 @@
+#### the holy things, the faithful things
+
 > And as to His having raised Him up from the dead, no longer to return to corruption, He spoke in this way, “I will give you the holy things of David, the faithful things.”
 Acts 13:34
 
@@ -19,3 +21,11 @@ Isaiah 55:3
 2 Chronicles 6:42
 
 These holy things, these mercies, are all the aspects of what Christ is to us in resurrection, such as life, light and grace. whatever He is to us is a real mercy to us from God.
+
+#### forgiveness and justification
+
+these are also Christ as mercies given to us by God
+
+#### continue in the grace
+
+God has given Christ to as mercies, holy things, faithful things. but practically what we enjoy is just grace. grace is our enjoyment of Christ as the mercies given to us by God.
