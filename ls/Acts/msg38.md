@@ -29,3 +29,9 @@ these are also Christ as mercies given to us by God
 #### continue in the grace
 
 God has given Christ to as mercies, holy things, faithful things. but practically what we enjoy is just grace. grace is our enjoyment of Christ as the mercies given to us by God.
+
+#### the eternal life
+
+the sum total of the Son of God as mercies and grace is the eternal life. the jews considered themselves unworthy of eternal life, and the gentiles were appointed to this eternal life.
+
+on the one hand, God ordains eternal life to those He selects. On the other hand it is up to us to chose. however whether we chose or not is up to His ordination.
