@@ -6,3 +6,5 @@ requires the believers exercise to get into and know the truth.
 
 "enter into the kingdom of God" - this is not just an outward objective kingdom over
 which God rules as the King, but Christ Himself as the kingdom seed within us.
+
+the whole world is against us entering into the kingdom of God. that is why we need to expect many tribulations to oppose us. we must be prepared and endevour to enter in to it.
