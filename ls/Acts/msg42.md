@@ -9,3 +9,7 @@ also witnessed the Spirit falling on the Gentiles when theh believed in Corneliu
 Peter should have been strong to testify of these things. the Lord was bold when He
 talked about the widow of Sidon and Namaan the Syrian. Peter should have been the same.
 if he had been bold at the beginning there would have been no need for so much discussion.
+
+James' testimony was also very weak. he quoted a verse from the old testament that
+uplifted the nation of Israel, and does not even relate to the current period of grace. He concluded that Moses has those who speak him in synagogues all throughout the earth, showing how much mixture he had. James was very weak in opposing
+the juaisers. on the contrary both the Lord and Paup were strong to say that the reason God has gone to the Gentiles is because the nation of Israel rejected Him. this is quite different from how James spoke.
