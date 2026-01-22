@@ -8,4 +8,6 @@ the book of matthew is on the kingdom. we need to repent for the kingdom. we nee
 for not being under christ as our king. regardless whether we are a sinner or not, if
 we are not under the king we are not in the kingdom and are in rebellion.
 
-we are not in the kingdom because we do no5 have the king. if we repent the king will come to us and we will have the kingdom.
+we are not in the kingdom because we do not have the king. if we repent the king will come to us and we will have the kingdom.
+
+to preach the gospel we first need to go to the Lord as a priesr to gain Christ as a king. then we need to go to others, speak to them to repent, and bring the king to them.
