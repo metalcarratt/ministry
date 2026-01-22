@@ -7,3 +7,5 @@ John forsook the way of religion and culture and came in a wild way, in a widler
 the book of matthew is on the kingdom. we need to repent for the kingdom. we need to repent
 for not being under christ as our king. regardless whether we are a sinner or not, if
 we are not under the king we are not in the kingdom and are in rebellion.
+
+we are not in the kingdom because we do no5 have the king. if we repent the king will come to us and we will have the kingdom.
