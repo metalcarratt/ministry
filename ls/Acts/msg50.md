@@ -1,0 +1,3 @@
+- apollos causing trouble because he was not up to date (deficient) in the ministry.
+- paul spent longer in ephesus to establish the church there. this is a change in his later ministry. also ephesus was an important port city
+- spontaneously clearing the past
