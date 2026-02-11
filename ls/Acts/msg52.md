@@ -11,3 +11,5 @@ preaching were the demons who are behind the idols. paul was part of a great bat
 between satans kindgom and gods.
 
 paul had a fourfold burden: for Corinth, Ephesus, Jerusalem and Rome.
+
+> as we consider the picture portrayed in Acts, we see that while Paul was laboring to care for the Lord's move in the area around the Mediterranean Sea, he was still burdened concerning Jerusalem, because it was the source of the poison that was spreading into the Gentile world. Therefore having no peace to continue his work in Europe and in Asia, he endeavoured in his faithfullness to go up to Jerusalem in order to deal with the source of the poison of religious mixture that was flowing out of Jerusalem to the Gentile world.
