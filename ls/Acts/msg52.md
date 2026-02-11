@@ -9,3 +9,5 @@ the behaviour of the people in ephesus was foolish and even laughable. it was no
 logical, because it was stirred up by demons. the real ones at threat from pauls
 preaching were the demons who are behind the idols. paul was part of a great battle
 between satans kindgom and gods.
+
+paul had a fourfold burden: for Corinth, Ephesus, Jerusalem and Rome.
