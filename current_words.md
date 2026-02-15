@@ -4,6 +4,13 @@
 
 ## recent ministry
 
+#### VT msg 12, reward/punishment + lamp in the dark place
+- His will, in His way, and at His time
+- allowing His authority to touch the depths of our being
+- "a lamp shining in a dark place" (2 Pet 1:19) - the Lord as light has to reach the darkest part of our being, even to our abyss, then He will have a lamp in our inward being.
+- this is by giving to heed to the prophetic word, which according to the context of vv12-18, includes Christ as "the power and coming of our Lord Jesus Christ", "that One's majesty", "He received from the Father honor and glory", "This is My Son, My Beloved", "the voice borne out of heaven"
+- reading and pray-reading have a marvelous effect of our being. you can read 3 OT and 1 NT to read the whole Bible in a year; you can choose one book and pray-read a few verses every day until you finish the whole book.
+
 #### VT msg 10, kingdom
 - the Lord's assignment to me is best for me
 - learn to share the same position with Christ. set the mind on the things which are above.
@@ -19,7 +26,7 @@
 - He wants access to the depths of our being
 - there is an abyss deep in our being. when you wake up in the morning and many thoughts come ask the Lord, is this thought from You?
 - He wants to reach tbe depths of our soul, beyond what we even know. if we give the Lord the ground, the access, the opportunity, the free way to move and act, death and hades will be under His control
-- Christ has the keys, the authority, of death and Hades
+- Christ has the keys, the authority, of death and Hades. he is not afraid of death and hades. he has the keys.
 
 
 
