@@ -15,3 +15,5 @@ serve God, and protect His testimony.
 numbered:
 - by families - our source of life (from whom we receieved the gospel) is oir spiritual family.
 - by the leaders - under the leadership and eldership in the church
+- according to age (requiring growth and maturity)
+- excluding the women and those under twenty (the weak and immature ones)
