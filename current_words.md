@@ -2,7 +2,13 @@
 - what do you want me to have faith in? What do you want me to believe in?
 - was what I experienced of peace and power really you or something else?
 
-## recent ministry
+## recent ministry / experience
+
+#### 18 Feb 26
+As our peqce offering He is also the arbitrating one. "let the peace of christ arbitrate in your hearts." as such an arbitrating One, He decides what is right or wrong, life or death, spirit or flesh. its not us. he divides spirit from soul. paul says he doesnt judge himself because the one who judges is God. So I ask the Lord to judge in my heart, 5o arbitrate and decide, by making peqce in my heart.
+
+#### 17 Feb 26
+whether or not i know what this is i know that it persists in me no matter what. its almost similar to my faith in the lord. i do not know if thats positive oe negative but i can only accept that it has persisted through many death experiences.
 
 #### VT msg 12, reward/punishment + lamp in the dark place
 - His will, in His way, and at His time
