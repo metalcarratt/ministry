@@ -1,0 +1,13 @@
+the Levites service being for the tabernacle:
+- the tabernacle being Christ in all His rich aspects
+- the word "service" here actually means "warfare". as priests of the gospel of God we are warriors
+- the basic principle: no confusion
+- the priests on the east, guarding the entrance of the tabernacle
+  - keeping the charge of the tabernacle, to be responsible for the tabernacle
+  - keeping the charge of the children of Israel, to ensure they did not do anything wrong
+- the Levites replacing the firstborn of the children of Israel, since they lost the right to participate in the service
+  - the number of Levites had to match the number of firstborn of the children of Israel, otherwise they had to be redeemed
+- the provision of twelve tribes of jacob to surround the tabernacle in array, and the three sons of Levi to form three groups on each side, shows that only God could make such an arrangement, and that such an arrangement is wholy based on our birth, not our being hired or fired. for us to serve as priests today depends also on our divine birth
+- the gershonites at the rear protecting the tabernacle and responsible for the whole tabernacle
+- the kohathites on the south responsible for all the items of the tabernacle, including the ark, the altars, the lampstand and the showbread table. to be responsible for these things is to present Christ in all these aspects to people
+- the sons of merari on the north responsible for the boards, sockets, bars, pillars and so on.
