@@ -13,4 +13,6 @@ to us by being joined to us. we must match Him, be one with Him and coordinate w
 > way that each pair of runners has three legs. In the New Testament, God must have
 > man to match Him, to be one with Him, to coordinate with Him.
 >
-> ... The Lord's move today is with us. Regarding His move, we may be either a "mule wagon" or a "747." By this I mean that if we are slow, the Lord's move with us will be slow. If we are fast, the Lord's move with us will be fast.
+> The Lord's move today is with us. Regarding His move, we may be either a "mule wagon" or a "747." By this I mean that if we are slow, the Lord's move with us will be slow. If we are fast, the Lord's move with us will be fast.
+>
+> Christ, the embodiment of God for His expansion, moves through those who love Him. If we do not move, He cannot move. Rather, He is bound and even imprisoned within us. If we do not move, we become a prison to the Lord.
