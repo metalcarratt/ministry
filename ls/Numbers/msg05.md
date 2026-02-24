@@ -20,3 +20,5 @@ to us by being joined to us. we must match Him, be one with Him and coordinate w
 details:
 - the priests had the privilege of "packing" all the things of Christ: thr ark, the lampstand and showbread table. (not clear what packing means)
 - all the levitical service was under the supervision of the priests. this means that even when we are doing a non spiritual service such as arranging chairs or serving in the church office, we should do so under the inward, spiritual view of the priesthood. as we arrange chairs we may pray for the person who will sit there, for example.
+
+> While we are caring for business matters, we should minister life to others. If we do tbis, our Levitical service is under the view and supervision of the priesthood.
