@@ -16,3 +16,7 @@ to us by being joined to us. we must match Him, be one with Him and coordinate w
 > The Lord's move today is with us. Regarding His move, we may be either a "mule wagon" or a "747." By this I mean that if we are slow, the Lord's move with us will be slow. If we are fast, the Lord's move with us will be fast.
 >
 > Christ, the embodiment of God for His expansion, moves through those who love Him. If we do not move, He cannot move. Rather, He is bound and even imprisoned within us. If we do not move, we become a prison to the Lord.
+
+details:
+- the priests had the privilege of "packing" all the things of Christ: thr ark, the lampstand and showbread table. (not clear what packing means)
+- all the levitical service was under the supervision of the priests. this means that even when we are doing a non spiritual service such as arranging chairs or serving in the church office, we should do so under the inward, spiritual view of the priesthood. as we arrange chairs we may pray for the person who will sit there, for example.
