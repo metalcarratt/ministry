@@ -1,0 +1,8 @@
+- paul warned the ephesian elders that wolves and perverted ones would come in. the wolves are from outside and the perverted ones from inside, seeking to form another flock
+- paul committed them to the word of God's grace. if we are saturated with the word and with lifestudy messages we useful in serving the Lord
+  - the word build is up
+  - the word gives us an inheritance
+  - the word sanctifies us
+ - paul worked to support himself and others. he did not consider preaching a profession, but had a genuine burden for God's NT economy
+   - we all should have the attitue that if we can we would serve the lord fulltime, and if not we would work to support ourselves and others to serve
+ - as such we need a burden, we need constitution, and we need to serve, whether full time or while working to support oursepves and others.
