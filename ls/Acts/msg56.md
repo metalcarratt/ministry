@@ -5,3 +5,7 @@ some points:
 regarding Paul's speaking to James and the elders in Jerusalem:
 
 > After Paul greeted the elders, "he related one by one the things which God did among the Gentiles through his ministry." Paul wisely did not teach them, but instead presented the things God had done through his ministry. When they heard this, they glorified God.
+
+a lot of mixture in jerusalem:
+- james referred to the twelve tribes in dispersion in his epistle
+- 
