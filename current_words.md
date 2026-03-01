@@ -4,6 +4,23 @@
 
 ## recent ministry / experience
 
+#### 2 Mar 26
+
+Maybe the Lord wants me to be more desperate in my prayer. My prayer is so weak, so low. Even though I pour out, there is not much feeling, not much desperation.
+
+> Prod me with you loving hands
+> Stir me from my deep impasse
+> I want to flee this stagnant rut
+> My soul, my prison, deadened lot
+
+#### 1 Mar 26
+
+Maybe the Lord's training and desire is that I would not be brought under the power or control of anything, including certain parts of my body. Even if the thing itself is not evil, the fact I am controlled by it is. The Lord wants me to be above it, to be over it, to be in control of it, not ruled by it.
+
+> All things are lawful to me, but not all things are profitble, all things are lawful to me, but I will not be brought under the power of anything.
+
+1 Cor 6:12
+
 #### 18 Feb 26
 As our peqce offering He is also the arbitrating one. "let the peace of christ arbitrate in your hearts." as such an arbitrating One, He decides what is right or wrong, life or death, spirit or flesh. its not us. he divides spirit from soul. paul says he doesnt judge himself because the one who judges is God. he judges and decides through peace. his peace is the judge. So I ask the Lord to judge in my heart, 5o arbitrate and decide, by making peqce in my heart.
 
