@@ -21,6 +21,10 @@ Maybe the Lord's training and desire is that I would not be brought under the po
 
 1 Cor 6:12
 
+#### 27 Feb 26
+
+It is not the person themselves whom the Lord used to show mercy or to manifest power, but the Lord Himself. How or why He uses a parricular person, I do not know, but I should not unfairly unplift that person in my heart, rather I shouls recognise the Lord's hand behind it and worship and thank Him.
+
 #### 18 Feb 26
 As our peqce offering He is also the arbitrating one. "let the peace of christ arbitrate in your hearts." as such an arbitrating One, He decides what is right or wrong, life or death, spirit or flesh. its not us. he divides spirit from soul. paul says he doesnt judge himself because the one who judges is God. he judges and decides through peace. his peace is the judge. So I ask the Lord to judge in my heart, 5o arbitrate and decide, by making peqce in my heart.
 
