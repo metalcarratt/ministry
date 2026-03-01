@@ -1,4 +1,9 @@
-## Questions for the Lord
+## Prayers and questions for the Lord
+Prayers
+- Lord, shine Your light in this part of my being until I clearly see. It is not okay to keep walking about in darkness. shine a light, even into the abyss of my heart.
+- Lord, I do not want to be under the power of anything. Put all things under my feet.
+
+Questions
 - what do you want me to have faith in? What do you want me to believe in?
 - was what I experienced of peace and power really you or something else?
 
@@ -9,8 +14,11 @@
 Maybe the Lord wants me to be more desperate in my prayer. My prayer is so weak, so low. Even though I pour out, there is not much feeling, not much desperation.
 
 > Prod me with you loving hands
+> 
 > Stir me from my deep impasse
+> 
 > I want to flee this stagnant rut
+> 
 > My soul, my prison, deadened lot
 
 #### 1 Mar 26
