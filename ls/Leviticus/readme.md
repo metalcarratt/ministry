@@ -105,6 +105,15 @@ The Sabbath and the feasts (2)
 - [Message 57](msg57.md) - the Jubilee - recovering fields that were sold; recovering a house in a walled city
 - [Message 58](msg58.md) - the Jubilee - caring for the brothers
 
+## A warning and our response
 
+A word of warning
+- [Message 59](./msg59.md) - A word of warning with blessings and punishment
+- [Message 60](./msg60.md) - Seeing a vision of the Triune God and His work will make us obedient ones
+- [Message 61](./msg61.md) - Three more levels of punishment / curse
+
+Our response - a vow to Jehovah
+- [Message 62](./msg62.md) - The result of seeing the offerings, the priesthood, what we are in our self, the feasts with the jubilee and the warnings should result in one thing from us - making a vow to the Lord
+- [Message 63](./msg63.md) - The valuation of our consecration
 
 
