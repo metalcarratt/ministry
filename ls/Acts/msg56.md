@@ -8,4 +8,4 @@ regarding Paul's speaking to James and the elders in Jerusalem:
 
 a lot of mixture in jerusalem:
 - james referred to the twelve tribes in dispersion in his epistle
-- 
+- james uses the word 'synagogue' and mentions other practices which would indicate the believers in Jerusalem still regarded themselves as part of the jewish nation
