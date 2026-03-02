@@ -6,3 +6,5 @@ abstaining from wine, vinegar, grapes, grape skin, or anything which has its sou
 this shows the extent to which the nazarite abstained from any earthly pleasure.
 
 > We should be careful of anything earthly that makes us happy. Earthly pleasure leads to lustful conduct and to a lustful intention. Earthly enjoyment and pleasure would defile a Nazarite.
+
+not shaving the head, signifies be under the Lord's authority, including all deputy authorities.
