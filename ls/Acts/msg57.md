@@ -7,3 +7,7 @@ time he was in the heavens, but there in the temple he would not have been able
 to praise the Lord, rather that would have been a real prison to him. paul was trapped but the lord still had a way to take him out of that situation.
 
 > Although Paul was imprisoned in the temple, the Lord has a way to release him from this prison. The Lord used the Jews to accomplish this release. In particular, the Lord used the uproar caused by the Jews to take Paul out of the temple. On the one hand, Paul was then in a greater difficulty. On the other hand, he was released not only from the temple but also from the God-condemned mixture of the New Testament grace with Old Testament law in Jerusalem. In His sovereignty the Lord protected His faithful servant from that terrible mixture.
+
+through paul's two year imprisonment in ceasarea, which both kept him from his work and the mixture
+in jerusalem, paul was freed to prepare himself to write four of his most crucial epistles: ephesians, philippians, colossians and hebrews. this is the
+Lord's sovereignty.
