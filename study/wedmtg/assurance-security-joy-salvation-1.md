@@ -1,5 +1,9 @@
 # The assurance of salvation
 
+> That if you confess with your mouth Jesus as Lord and believe in your heart that God has raised Him from the dead, you will be saved;
+
+Rom. 10:9
+
 If you recently have had the experience of receiving Christ, you may have had times when you doubted the reality of that experience; that is, you may have questioned whether you were really saved. Without the real assurance of salvation as a solid foundation, it is difficult for a new Christian to grow and experience the deeper things of the Christian life. Nevertheless, the Bible says it is possible to know absolutely, unreservedly, that you are a saved person. How can this be? Let us read 1 John 5:13:
 
 > I have written these things to you that you may know that you have eternal life, to you who believe into the name of the Son of God.
