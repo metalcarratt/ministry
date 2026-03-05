@@ -13,3 +13,7 @@ br lee's experience in shanghai.
 > for the formation of God's army. They are very vigilant, full of feeling for
 > the war against death. In every church there is the need of the sense, the
 > consciousness, of death so that we may fight against it.
+
+the offerings for the defilement of death indicate a new start.
+
+the nazarite was another way for one to become a priest. being born into the house of aaron was one way, a way that depended on God's initiation. consecrating ourselves to becone a nazarite was the other way, a way that depended on our initiation. samuel was such a one who was not qualified to be a priest by birth, but became such through the nazarite vow.
