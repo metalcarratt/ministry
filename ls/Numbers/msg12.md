@@ -13,3 +13,7 @@ Himself to us as His vessel.
 > Why has the Lord not come yet? It seems that He is coming very slowly.
 > Actually it is not the One in the wagon who is slow, the oxen are slow.
 > This indicates the transportation we offer Him is slow.
+
+we cannot offer ourselves to God on our own. First we need to offer Christ as the sin offering for redemption. then we need to offer the burnt offering so
+that we can live God in Christ, with Christ and for Christ. the result is the peace
+offering, our enjoyment with God and God with us.
