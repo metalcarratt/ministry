@@ -9,6 +9,10 @@ Questions
 
 ## recent ministry / experience
 
+#### 16 Mar 26
+- always think and pray positvely for people, believing all things for them. do not believe any of Satan's lie that they are weak, lowly or fleshly.
+- the people around us are God's will. enjoy what the Lord has given _now_. consider the ones to care for based on His present arrangement.
+
 #### 2 Mar 26
 
 Maybe the Lord wants me to be more desperate in my prayer. My prayer is so weak, so low. Even though I pour out, there is not much feeling, not much desperation.
