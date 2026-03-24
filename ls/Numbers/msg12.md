@@ -17,3 +17,8 @@ Himself to us as His vessel.
 we cannot offer ourselves to God on our own. First we need to offer Christ as the sin offering for redemption. then we need to offer the burnt offering so
 that we can live God in Christ, with Christ and for Christ. the result is the peace
 offering, our enjoyment with God and God with us.
+
+
+the offerings afforded Moses a time to speak with God.
+
+> At the propitiation cover upon the ark of the trstimony, there was a conversation between man and God. In this conversation Moses could hear God's voice. How wonderful that God and man could be one to the extent that tbey could have such a conversation!
