@@ -12,6 +12,25 @@ Questions
 #### 28 Mar 26
 - i dont want to do that because i dont want to lose my love relationship with or enjoyment of the Lord
 - dwelling on the things of evolution just brings in doubts, but I know God is real because I just believe, and also because He is a living person inside me. in the same way, day dreaming about things of tbe future brings in doubts because i cant possibly know my future, but just trustinf in the person inside me brings me peace.
+- **to enjoy the annointing we need to hand ourselves over to him. he is ready to paint us wi5h himself but we need to give ourselves to him. every thought that if we hand ourselves over he would hurt us, do something to us, allow something to happen to us, is of the devil. our father loves us and cares for us and knows what we need. he is the god of all comfort. we need to reject the devils lie and give ourselves to him.**
+
+- in john and revelation he is revealed both as the lamb and the bridegroom. the lamb is fkr righteousness, to make our garments clean, even to stitch us and constitute us with righteousness, and the bridegroom is for love, to fill us with the heavenly wine.
+
+#### 25 mar 26
+the lord did not need to touch to heal, he needed only to speak a word. this is a
+matter of authority. if he is _willing_ we will be healed.
+
+#### 24 mar 26
+"reclining at table... many tax collectors and sinners...eat"
+"i did not come to call the righteous but sinners"
+the unclean people are actually sick. the lord came to recline togehter, to ear with,
+us. the self righteous want to give something to God, but that is not God's way
+in His economy.
+
+#### 23 mar 26
+"the sons of the bride chamber cannot mourn as long as the bridegroom is with them."
+we mourn because we are not enjoying this one who is wkth us. he is our lovely
+bridegroom, and he is everything we need.
 
 #### 16 Mar 26
 - always think and pray positvely for people, believing all things for them. do not believe any of Satan's lie that they are weak, lowly or fleshly.
