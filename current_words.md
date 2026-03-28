@@ -9,6 +9,10 @@ Questions
 
 ## recent ministry / experience
 
+#### 28 Mar 26
+- i dont want to do that because i dont want to lose my love relationship with or enjoyment of the Lord
+- dwelling on the things of evolution just brings in doubts, but I know God is real because I just believe, and also because He is a living person inside me. in the same way, day dreaming about things of tbe future brings in doubts because i cant possibly know my future, but just trustinf in the person inside me brings me peace.
+
 #### 16 Mar 26
 - always think and pray positvely for people, believing all things for them. do not believe any of Satan's lie that they are weak, lowly or fleshly.
 - the people around us are God's will. enjoy what the Lord has given _now_. consider the ones to care for based on His present arrangement.
