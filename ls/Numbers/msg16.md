@@ -16,3 +16,6 @@ we have touched something. this is the Lord's leading.
 > The prrsence of the Spirit today is altogether invisible and abstract, and it absolutely has something to do with our situation before God, especially in our spirit. When our spirit is wrong, we need to go to God to adjust our spirit. We may not be able to adjust our spirit in a morning watcb of only ten minutes. It may take more than half an hour for us to adjust our spirit in full. If we are wrong in something and if the Lord has the purpose of teaching us to know His way, He may not be quick to show us in what we are wrong. Rather, He may leave us in a puzzled state for quite a while, even for several days. During this time, we may pray in a groping way seemingly without getting anywhere. Because thr Lord has a deep lesson for us to learn, He will train us during those puzzling days of groping. Then one day we will reach the point where the Lord wants us to be. There we either touch the rain or see the cloud. It is in this way that we learn.
 >
 > We need to keep in mind that God's guidance is actually God Himself in His presence with us. In ancient times, God's guidance was in the form of a cloud. Today, we do not have the cloud, we have the Spirit within us.
+
+
+God's leading is second by the trumpets.
