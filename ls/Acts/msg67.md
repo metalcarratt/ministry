@@ -19,7 +19,8 @@ paul counted all the things of his hebrew background to be loss on account of Ch
 
 Phil. 3:5
 > Circumcised the eighth day; of the race of Israel, of the tribe of Benjamin, a Hebrew born of Hebrews; as to the law, a Pharisee;
- Phil. 3:7-8
+
+Phil. 3:7-8
 > But what things were gains to me, these I have counted as loss on account of Christ.
 >
 > But moreover I also count all things to be loss on account of the excellency of the knowledge of Christ Jesus my Lord, on account of whom I have suffered the loss of all things and count them as refuse that I may gain Christ
