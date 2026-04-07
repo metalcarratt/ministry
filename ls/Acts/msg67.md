@@ -1,5 +1,7 @@
 a further word concerning Paul's burden in Ephesians, Collosians, Philippians and Hebrews.
 
+#### ephesians
+
 abolishing the ordinances in His flesh (Eph 2:14-16) - on the cross Christ abolished the
 ordinances in his flesh. this included the nazarite vow. Christ abolished it but James
 promoted it.
@@ -11,6 +13,7 @@ Eph 2:14-16
 >
 > And might reconcile both in one Body to God through the cross, having slain the enmity by it.
 
+#### philippians
 
 paul counted all the things of his hebrew background to be loss on account of Christ (phil. 3:7-8). james continued to promote them.
 
@@ -21,12 +24,16 @@ Phil. 3:5
 >
 > But moreover I also count all things to be loss on account of the excellency of the knowledge of Christ Jesus my Lord, on account of whom I have suffered the loss of all things and count them as refuse that I may gain Christ
 
+#### colossians
+
 col 3:10-11, "having put on the new man ... where there cannot be Greek and Jew.. but Christ is all and in all". this verse leaves no ground for judaism.
 
 Col. 3:10-11
 > And have put on the new man, which is being renewed unto full knowledge according to the image of Him who created him,
 >
 > Where there cannot be Greek and Jew, circumcision and uncircumcision, barbarian, Scythian, slave, free man, but Christ is all and in all.
+
+#### hebrews
 
 in hebrews Christ is the replacement of Moses, Joshua and Aaron, as well as the unique offering. "by one offering he has perfected forever those who are being sanctified" (heb 10:14)
 
