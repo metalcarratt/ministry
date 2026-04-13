@@ -11,6 +11,9 @@ Questions
 
 #### 13 Apr 26
 - the good land typifies the all inclusive christ. as sucb i think the enemies must be anything that prevents us from enjoying Christ. we need an active faith to trust the Lord and fight the battle to overcome anything that prevents us from enjoying Christ. dont believe the lie that it is not possible.
+- examples:
+  - believing in guilt when the blood has already cleansed
+  - not trusting the Lord for the future, or His present hand in the environment
 
 #### 28 Mar 26
 - i dont want to do that because i dont want to lose my love relationship with or enjoyment of the Lord
