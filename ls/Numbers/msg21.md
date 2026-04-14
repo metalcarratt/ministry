@@ -24,4 +24,4 @@ themsleves before Him. this caused God to abhor them.
 > For their security they study diligently and work hard. Some even fear God and
 > believe in Christ for their own security.
 >
-> Why did the children of Israel become abhorent to God in Numbers 
+> Why did the children of Israel become abhorent to God in Numbers 13 and 14
