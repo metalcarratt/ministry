@@ -18,7 +18,7 @@ themsleves before Him. this caused God to abhor them.
 >  thought concerning God's interest on earth and in the universe.
 >
 > Surely we are God's children, and God is for us. But for whom are we? Some
-> Christians give no thought to God's interest, God's gain, of God's suffering.
+> Christians give no thought to God's interest, God's gain, or God's suffering.
 > They think and speak only about themselves and their security. Among worldly
 > people today, security is a big idol. Everything they do is for their security.
 > For their security they study diligently and work hard. Some even fear God and
