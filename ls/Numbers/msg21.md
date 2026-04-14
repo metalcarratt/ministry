@@ -24,4 +24,9 @@ themsleves before Him. this caused God to abhor them.
 > For their security they study diligently and work hard. Some even fear God and
 > believe in Christ for their own security.
 >
-> Why did the children of Israel become abhorent to God in Numbers 13 and 14
+> Why did the children of Israel become abhorent to God in Numbers 13 and 14? They became abhorent because they were so much for themselves. In everything and in every way they were for themselves, not for God's interests. If they had thought even a little for God's interests,  they would have said, "God, as You have been so good to us, we just love You. We would like to sacrifice our future, our safety, our security, our existence, and everything for Your purpose. We forget about our benefit. We care only that You accomplish Your purpose. For Your purpose, let us go and possess the land."
+> 
+> Caring for God and His interests produces faith. When we are so much for ourselves, it is difficult for us to have faith in God. But if we take the standing that we are for God and that for His interests we are willing to risk everything--our future, our family, even our life--faith will spontaneously be produced in us.
+> 
+> We all need to be impressed with the fact that in ourselves we are weak and do not have any faith. Who among us can boast that he has faith? Faith is of God, faith is in God, and faith comes from God. If we would have faith, we must learn to care for God's interests amd not for our benefit. The worldly people are concerned daily for their own security and benefit, but we should care only for God and His interests. History tells us that those who cared for God and did not consider their own benefit became people of faith, and some even became giants of faith.
+
