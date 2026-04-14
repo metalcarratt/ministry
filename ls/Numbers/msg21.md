@@ -12,7 +12,10 @@ themsleves before Him. this caused God to abhor them.
 > but between God and Satan. Thus if we only care for our existence, security, safety,
 > peace, and future, we may become and abhorence in the eyes of God.
 >
-> ...
+> Today some believers are very much for themselves, caring for their security and
+> for blessings in material things but not caring for God's purpose. Such Christians
+> believe in Jesus Christ only for their own benefit; they do not have the slightest
+>  thought concerning God's interest on earth and in the universe.
 >
 > Surely we are God's children, and God is for us. But for whom are we? Some
 > Christians give no thought to God's interest, God's gain, of God's suffering.
@@ -20,3 +23,5 @@ themsleves before Him. this caused God to abhor them.
 > people today, security is a big idol. Everything they do is for their security.
 > For their security they study diligently and work hard. Some even fear God and
 > believe in Christ for their own security.
+>
+> Why did the children of Israel become abhorent to God in Numbers 
