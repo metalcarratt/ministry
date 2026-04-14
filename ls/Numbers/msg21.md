@@ -10,7 +10,7 @@ themsleves before Him. this caused God to abhor them.
 > and our security. But we should not forget that God's enemy, Satan, is hidden behind
 > the scene and that the real issue on earth today is a matter not betwen God and man
 > but between God and Satan. Thus if we only care for our existence, security, safety,
-> peace, and future, we may become and abhorence in the eyes of God.
+> peace, and future, we may become an abhorence in the eyes of God.
 >
 > Today some believers are very much for themselves, caring for their security and
 > for blessings in material things but not caring for God's purpose. Such Christians
