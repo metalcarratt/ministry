@@ -13,6 +13,18 @@ The dealings to become an army
 - [Message 07](./msg07.md) - Dealing with faithfulness toward the Lord as our Husband (Num. 5b)
 
 The Nazarite vow
-- [Message 08](./msg08.md) - abstaining from earthly pleasure and being under authority
-- [Message 09](./msg09.md) - abstaining from and fighting against any form of death; the way for a non-priest to become a priest
-- [Message 10](./msg10.md) - 
+- [Message 08](./msg08.md) - abstaining from earthly pleasure and being under authority (Num 6a)
+- [Message 09](./msg09.md) - abstaining from and fighting against any form of death; the way for a non-priest to become a priest (Num 6a)
+- [Message 10](./msg10.md) - full of hair, under submission; the offerings show the Nazarite's whole life was for God (Num 6a)
+
+The blessing of the Triune God
+- [Message 11](./msg11.md) - The Triune God is our real blessing and portion (Num 6b)
+
+Further preparation
+- [Message 12](./msg12.md) - The moving of the tabernacle on carts and oxen showing He is limited by us because the transportation we offer Him is slow (Num 7)
+- [Message 13](./msg13.md) - The service of the Levites, under the enlightening of the lamps and the instruction of the older ones to keep every spiritual principle (Num 8)
+- [Message 14](./msg14.md) - The Lord went through a process to become the oil; all the items of the tabernacle were anointed with this oil (?)
+- [Message 15](./msg15.md) - The Passover as a type of the Lord's Table, is for God's move (Num 9a)
+
+God's leading
+- [Message 16](./msg16.md) - God's leading by the cloud (the Spirit as the watering One) and the trumpets (Num 9b-10a)
