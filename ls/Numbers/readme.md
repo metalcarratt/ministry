@@ -11,3 +11,8 @@ The formation of the army
 The dealings to become an army
 - [Message 06](./msg06.md) - Dealing with corporate and personal defilement (Num. 5a)
 - [Message 07](./msg07.md) - Dealing with faithfulness toward the Lord as our Husband (Num. 5b)
+
+The Nazarite vow
+- [Message 08](./msg08.md) - abstaining from earthly pleasure and being under authority
+- [Message 09](./msg09.md) - abstaining from and fighting against any form of death; the way for a non-priest to become a priest
+- [Message 10](./msg10.md) - 
