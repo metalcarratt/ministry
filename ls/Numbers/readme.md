@@ -27,4 +27,19 @@ Further preparation
 - [Message 15](./msg15.md) - The Passover as a type of the Lord's Table, is for God's move (Num 9a)
 
 God's leading
-- [Message 16](./msg16.md) - God's leading by the cloud (the Spirit as the watering One) and the trumpets (Num 9b-10a)
+- [Message 16](./msg16.md) - God's leading (guidance) by the cloud (the Spirit as the watering One) and the trumpets (Num 9b-10a)
+- [Message 17](./msg17.md) - God's direct leading through the Ark as the incarnated Christ; He cut the way and we are following Him; Psa. 68 & Eph. 4 (Num 10b)
+
+The failures of God's people
+- [Message 18](./msg18.md) - Lusting for Egyptian food; bored with eating manna (Christ) as their daily food; prophecying (Num 11)
+- [Message 19](./msg19.md) - Miriam and Aaron's rebellion (Num 12)
+- [Message 20](./msg20.md) - The evil report of the spies; The all-inclusive Christ typified by the good land (Num 13-14)
+- [Message 21](./msg21.md) - God was bringing the children of Israel into the good land for Himself; they should have loved him and been willing to sacrifice everything for Him, but instead their security became a big idol to them, this caused God to abhor them (Num 13-14)
+
+Recalibrating His people after their failures
+- [Message 22](./msg22.md) - The Sabbath being our dependence on God to do everything; the offerings being Christ as everything to us (Num 15)
+
+Further failures of God's people
+- [Message 23](./msg23.md) - The rebellion of Korah; Moses being humble but also angry and committing everything to God (Num 16a)
+
+ 
