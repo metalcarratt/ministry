@@ -9,6 +9,16 @@ Questions
 
 ## recent ministry / experience
 
+#### 22 Apr 26
+i meed to exweciae my spirit strongly. its good to pray and pour out but its essential to atrongly exercise my spirit by calling and pray reading. how can the Lord speak to us and shine on us if we are empty of Him? As the song says, "Fill my spirit up". we need our spirit full until it overflows with shining, with life, with leading.
+
+#### 21 Apr 26
+acceot and submit to all the delegayed authority over you. this maybe your circumstances, etc. this is where we can meet Gos
+- Learn to know Gods authority by His placement of us; in our family, our marriage, our church, our workplace, our community.
+- Be trained, even under the smallesr things. Do not let anything go to waste.
+- But its easy to say it, its not easy ro do it. We need the lords mercy and grace to supply us.
+
+
 #### 13 Apr 26
 - the good land typifies the all inclusive christ. as sucb i think the enemies must be anything that prevents us from enjoying Christ. we need an active faith to trust the Lord and fight the battle to overcome anything that prevents us from enjoying Christ. dont believe the lie that it is not possible.
 - examples:
