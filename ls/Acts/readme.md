@@ -11,6 +11,13 @@ The preparation
 - [Message 06](./msg06.md) - The pouring out of the economical Spirit as a fulfillment of the feast of the harvest (Acts 2a)
 - [Message 07](./msg07.md) - The difference between the essential and economical Spirit (Acts 2a)
 - [Message 08](./msg08.md) - Speaking in tongues (Acts 2a)
+
+Peter's first message
 - [Message 09](./msg09.md) - Calling on the name of the Lord to enjoy our salvation (Acts 2:21)
 - [Message 10](./msg10.md) - Peter's message: concerning Christ's death, resurrection and ascension (Acts 2)
 - [Message 11](./msg11.md) - Peter's message: emphasising the Lord's humanity; instructing the people to repent, be baptised, receive forgiveness, receive the Spirit
+- [Message 12](./msg12.md) - The initiation of the church life: teaching, fellowship, breaking of bread, prayers (Acts 2b)
+
+Peter's second message
+- [Message 13](./msg13.md) - Peter's message after healing: the Jesus glorified in resurrection (Acts 3)
+- [Message 14](./msg14.md) - Peter's message: calling on the name of Jesus the Healer (Acts 3)
