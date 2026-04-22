@@ -24,8 +24,10 @@ Peter and John healing and Peter's second message
 - [Message 15](./msg15.md) - Peter's message to the Sanhedrin - the stone for God's building (Acts 4)
 - [Message 16](./msg16.md) - Christ as the Stone Saviour (Acts 4)
 
+The going on of the church life and Peter's imprisonment
 - [Message 17](./msg17.md) - The positive and negative scene in the church life - not only the Lord is in us but Satan as well (Acts 5)
-- [Message 18](./msg18.md) - Peter's imprisonment and third message - the Lord on the throne as the Leader and Saviour (Acts 5)
+- [Message 18](./msg18.md) - Peter's imprisonment and message - the Lord on the throne as the Leader and Saviour (Acts 5)
 
+Assigning brothers to serve tables and Stephen's arrest
 - [Message 19](./msg19.md) - Setting brothers to serve tables - not holding things in our hands but distributing responsibility to others (Acts 6)
 - [Message 20](./msg20.md) - Stephen's arrest and testimony - the need for a dispensational transfer (Acts 6)
