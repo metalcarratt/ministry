@@ -1,6 +1,10 @@
+## Ezekial 5 (Jerusalem's fall)
+
 ## Ezekiel 26-28 (Prophecy against Tyre)
 
 ## Ezekiel 29-32 (Propheyc against Egypt)
+
+## Ezekiel 37 (return of Israel from Babylon)
 
 ## Isaiah 13-14 (Prophecy againt Babylon)
 
@@ -18,5 +22,6 @@
 
 ## Daniel 9 (First coming of Christ)
 
+## Amos 7-9 (Assyrian conquest of Israel and Samaria)
 
-
+## Habakkuk 1-3 (Babylonian conquest of Judah)
