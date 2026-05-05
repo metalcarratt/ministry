@@ -1,6 +1,6 @@
-the church as the testimony of Jesus.
+### the church as the testimony of Jesus.
 
-the lampstands.
+#### the lampstands.
 
 all golden in nature. all shining forth
 light. in order to shine the lampstands
@@ -14,3 +14,15 @@ neither should we copy the negative things.
 it is not normal if a man who has seven
 holes in his head aspires to have five just
 to be different.
+
+#### the great multitude
+
+all the redeemed, who have overcome tribulation.
+
+#### the woman with theman child
+
+the woman is all of God's people, who have been under Satan's attack. during the great tribulation God will have a special provision to protect them from Satan's attack.
+
+the mancbild is the stronger part of the woman. becauase God's people throughout the ages have been weak there is a need for some stronger ones. these ones have fought against Satan on the earth to the point they have fought their way to the throne. these ones will cast Satan out of heaven and down to the earth.
+
+many think of the rapture aa Gos's blessing for them, but actually the rapture is not for us, it is to meet God's need. God needs a group of stronger onea who will care for His need to fight against His enemy, ascend to the throne and cast him out of heaven to the earth.
