@@ -27,6 +27,7 @@ Memorise these 8 facts
 8. the *experience* - in one Spirit, access unto the Father
 
 
+### The person
 
 - The apostles were authorized by Christ to represent Him. God is the unique reconciler, but He needs our help.
 - the church in Corinth was a genuine church with saints who had the initial reconciliation. But they had a further need; "I heard there are divisions among you."
@@ -38,6 +39,19 @@ Memorise these 8 facts
   - united, mingled, incorporated - this is the result of reconciliation
 - The *veil* of the *flesh*, the natural man, *separates* them from God
   - Paul was working to *cut asunder* the *separating veil* of the flesh
-  - The flesh is keeping us away from God. he flesh is the obstacle. The flesh is the blockage to our experience of God in the Holy of Holies
+  - The flesh is keeping us away from God. the flesh is the obstacle. The flesh is the blockage to our experience of God in the Holy of Holies
 - The *extent* to which we can bring others to God is measured by *where we are* with respect to God
   - outer court -> Holy place > Holy of Holies
+- it's not the message but the person. They are the gate.
+
+### The extent
+- reconciled to God to the extent we become the righteousness of God
+  - peace and righteousness cannot be separated
+- to have an inner being transparent and crystal clear, an inner being in the mind and will of God
+  - the walls of the New Jerusalem are transparent and crystal clear
+  - nothing hidden, secretive, all the way down to the motive and intentions
+ 
+### two steps
+- the two veils
+- the second veil needed to be rent so that sinners could be brought to God in the Holy of Holies
+- narrowness of heart - a strong indication we have been reconciled only partially
