@@ -20,3 +20,6 @@ our jobs we are not working for ourselves
 but for Christ. this will become
 a heave offering, a type of the
 ascended Christ.
+
+korah and his company defied the
+prieathood, but God came in to strengthen it, not only with the budding rod but with the reward to the levites and priests. if we give ouraelves to serve God as prieats, He will be our reward in ascenaion.
