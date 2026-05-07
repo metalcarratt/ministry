@@ -55,3 +55,12 @@ Memorise these 8 facts
 - the two veils
 - the second veil needed to be rent so that sinners could be brought to God in the Holy of Holies
 - narrowness of heart - a strong indication we have been reconciled only partially
+- being able to fogive an offense and forget it is a sign that we have become and englarged person
+- God reconciling us is based on God not accounting our offenses and fully forgiving us. But with us, we can not so easily forgive, let alone forget. It's possible there is still offence in our conscience, not able to forgive and forget.
+
+### the result
+- peace toward God
+- becoming God's sanctuary, His Holy of Holies, the New Jerusalem
+- the sanctuary is a place of protection. Does it mean we become the protection of the peace of God?
+
+
