@@ -23,3 +23,6 @@ ascended Christ.
 
 korah and his company defied the
 prieathood, but God came in to strengthen it, not only with the budding rod but with the reward to the levites and priests. if we give ouraelves to serve God as prieats, He will be our reward in ascenaion.
+
+
+i recall one of the differences betweeb the levites and the priesthood is the open function vs the hidden service. the levites served Goda people in a public way, offeeing the animals. but the priests served God in a private way, hidden within the sanctuary. the service of the prieathood waa hidden, without mans glory, but the reward of the ascended Christ was higher.
