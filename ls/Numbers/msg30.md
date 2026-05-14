@@ -17,3 +17,5 @@ the Spirit.
 > Moses cared for his feeling and not
 > God's nature, he was offended and
 > became angry.
+
+> To sanctify God means to respect and have regard for His holy nature. God is altogether different from everyone.  He is different not only from the false gods but also from every human being. Since God is different from everyone, we muat npt make Him common. We must not lower Him to our level. ... Whenever we are about to deal with His people, we must be mindful of God's nature. Then we will be preserved from the serious mistake of failing to sanctify Him in what He is.
