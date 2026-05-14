@@ -19,3 +19,5 @@ the Spirit.
 > became angry.
 
 > To sanctify God means to respect and have regard for His holy nature. God is altogether different from everyone.  He is different not only from the false gods but also from every human being. Since God is different from everyone, we muat npt make Him common. We must not lower Him to our level. ... Whenever we are about to deal with His people, we must be mindful of God's nature. Then we will be preserved from the serious mistake of failing to sanctify Him in what He is.
+
+> Whenever we speak to Christ as tbw rock, telling Him to give us living water, we must have the rod in our hands. ... Let us take the rod and keep it in our hand and aay, "Lord Jesua, I apply your death to myswlf, and I ask You to give me Your Spirit." 
