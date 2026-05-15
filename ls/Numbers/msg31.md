@@ -1,0 +1,4 @@
+- the bronze serpent
+- seeking help from edom (the flesh) but receiving none
+- singing to the well
+- 42 stations on thwir journey signify the 42 generations from adam to Christ. this shows that Christ was the goal, the reality of the good land. in the MT age pur goal is not Christ, rather we atart from Christ.
