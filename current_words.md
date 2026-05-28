@@ -9,6 +9,9 @@ Questions
 
 ## recent ministry / experience
 
+#### 29 May
+Lord, forgive me for trying to use my spirit as a fortune telling device.
+
 #### 22 Apr 26
 i meed to exweciae my spirit strongly. its good to pray and pour out but its essential to atrongly exercise my spirit by calling and pray reading. how can the Lord speak to us and shine on us if we are empty of Him? As the song says, "Fill my spirit up". we need our spirit full until it overflows with shining, with life, with leading.
 
