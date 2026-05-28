@@ -13,8 +13,6 @@ churches.
 
 - feet fired in a furnace, signifying having passed through judgment, and which qualifies Him to judge.
 
-almost all these points impress the point that in revelation Christ comea not only with grace and love but with judgment. however His judgment is still in love, in tender care, to trim the wicks and make the lampstands shining expressions of the triune God.
-
 - a voice as the sound of many waters, to warn us and wake us up in solemnity.
 
 - holding the stars, the messengers of the churches, in his hands. in the degredation of the church, being a shining star is more important than having the official position of an elder.
@@ -26,3 +24,4 @@ almost all these points impress the point that in revelation Christ comea not on
 - the first and last (who will finish what He began), the living One, the One with the authority over death amd hadea.
 
   
+almost all these points impress the point that in revelation Christ comea not only with grace and love but with judgment. however His judgment is still in love, in tender care, to trim the wicks and make the lampstands shining expressions of the triune God.
