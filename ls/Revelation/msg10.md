@@ -9,3 +9,5 @@ the Lord.
 - the promise to this church is to eat of the tree of life. this is life.
 - the danger (warning) to this church is losing the lampstand. this is light.
 - the fault of this church is leaving the first love. this is love.
+
+> Perhaps in the coming years we shall not love Him as much as we do now. Beware of this. It is better to lose some of our work than to fail in our love for the Lord.
