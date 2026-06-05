@@ -25,3 +25,5 @@ number of people inside it. this
 show that our inheriting of Christ
 as the good land is proportional
 to our growth in life.
+
+the distribution was also according to lot. this shows that on our side there is the responsibility, but on God'a side there is also His sovereignty.
