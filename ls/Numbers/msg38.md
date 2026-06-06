@@ -2,6 +2,8 @@ a case of two females requesting
 an imheritanve because their
 father had no sons.
 
+#### the importance of the life relationship
+
 one of the principles here is that
 inheritance is related to our life
 relationship with others. all of
@@ -29,3 +31,7 @@ gospel to us.
 > channel is the means by which we
 > came into existence in the
 > divine life.
+
+#### the importance of caring for the inheritance
+
+the i heritance signifies the grace of Christ. God is happy when we want this and ask for this.
