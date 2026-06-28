@@ -1,0 +1,21 @@
+ch 5 another scene in heaven.
+
+a scroll in the right hand of Him who
+sits up in the throne. this scroll
+contains the meaning of the universe, 
+the secret of God's economy. this
+mystery is unsealed by the ascended
+Christ. 
+
+the worthy One - the Lion Lamb. To
+the enemy He is the Lion, to John He
+was the Lamb. He was freshly slain,
+indicating this scene is just after
+His ascension. 
+
+He is the root and branch of David. 
+
+As the Lion He has overcome Satan and
+as the Lamb He has taken away our sin. 
+Thus He has overcome and is worthy to
+open this scroll. 
