@@ -16,3 +16,6 @@ iin the blood" so this can be interpreted
 aas the souls of the martyred saints being
 u in the earth, sacrificed on the altar for
 GGod. 
+
+the sixth seal will be gods response to the martyrs cry for vengence. he will shake the earth, the sun will become dark, the stars of heaven will fall, and every island and mountain will be moved out of its place. this is God's warning to them. the response of those on the earth is to hide in fear from God. 
+
