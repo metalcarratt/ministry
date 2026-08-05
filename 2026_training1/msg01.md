@@ -62,7 +62,9 @@ We need the power, firstly to refuse, and then the power, to chose. That only ca
 
 The love of God has been poured out in our hearts. Thank You God. The love of God has been poured out into my heart. Say it. When you say it, you have it. You already had it. When you say it you enter into the reality.
 
-### C. awakened in the morning, awakens my ear to hear as an **instructed** one. rely on Him, trust in Him name, do not generate your own light. Isa 5-:4-5, 10-11. Not self made light. To be instructed, to be shined on. Often you just need a little light. Just a little light changes everything. Enlightenment rests with the mercy of God.
+### C. awakened in the morning, awakens my ear to hear as an **instructed** one. 
+
+rely on Him, trust in Him name, do not generate your own light. Isa 5-:4-5, 10-11. Not self made light. To be instructed, to be shined on. Often you just need a little light. Just a little light changes everything. Enlightenment rests with the mercy of God.
 
 Five points on how to be enlightened:
 - we have to want the shining
@@ -77,17 +79,25 @@ Actually we are discipled by light. when light comes we see, when we see we lear
 
 if we feel burdened we need to stop and ask the Lord for light. The Lord's burden is light. "come to me, all who toil, learn from Me".
 
-### E. "I have **learned** in whatever circumstances to be content" - Paul was in a tough situation and he had to learn. we can learn, just have the attitude of a learner. "I know also how to be abased and how to abount, I have **learned** the secret to be content". Am I content? One of Paul's secrets was casting all anxiety on the Lord, and with thanksgiving.
+### E. "I have **learned** in whatever circumstances to be content"
+
+- Paul was in a tough situation and he had to learn. we can learn, just have the attitude of a learner. "I know also how to be abased and how to abount, I have **learned** the secret to be content". Am I content? One of Paul's secrets was casting all anxiety on the Lord, and with thanksgiving.
 
 ### F. "go and **learn** what this means, I desire mercy and not sacrifice."
 
-### G. **guide** them into all the reality of what they had learned of the Lord. The Spirit of reality guides into reality by speaking. His speaking is His guiding. Our following is our learning. The Spirit would speak what the Lord spoke. We need the word in us all the time.
+### G. **guide** them into all the reality of what they had learned of the Lord.
+
+The Spirit of reality guides into reality by speaking. His speaking is His guiding. Our following is our learning. The Spirit would speak what the Lord spoke. We need the word in us all the time.
 
 ### H. living by another source.
 
-### I. The Lord presents Himself as a physician and bridegroom, a pleasant Person. If we learn Christ we need to be the same. "The joy of Jehovah is my strength"
+### I. The Lord presents Himself as a physician and bridegroom, a pleasant Person. 
 
-### J. Christ the model of a God-man. His living and speaking was a discipling.
+If we learn Christ we need to be the same. "The joy of Jehovah is my strength"
+
+### J. Christ the model of a God-man. 
+
+His living and speaking was a discipling.
 
 ### K. brothers and sisters in front of us also become a discipling to us, what they do and what they don't do, especially when passing through hardship.
 
@@ -107,9 +117,13 @@ Looking away unto Jesus, the author and perfector of faith. (Heb. 12:2)
 
 ### C. faith comes out of hearing (Rom.10:17). hearing through the word of God
 
-### D. the more we love the Lord the more faith operates. We began by the Spirit, the hearing of faith. We need to come back to Him. Never miss the church meeting. Never miss the opportunity for the hearing of faith. Or your daily reading of the Bible. In your group meeting. The word is going out. It's not just the atmosphere. It's the word that works. Gal. 5:6, "faith avails, operating through love." faith operates. Heb 4:16, mix the word with faith. Then the word becomes operative. the "profit" of the all-inclusive Spirit. The faith does many things for us. We interupt the process by depending on ourselves.
+### D. the more we love the Lord the more faith operates.
 
-### E. not to think more highly of ourselves (rom 12:3). how much faith God apportions to us depends on our attitude, not being proud. we compare ourselves with others. jealousy comes in. how do you overcome? if you have this verse within you. the lord will bring it back at that time and we can agree with it.
+We began by the Spirit, the hearing of faith. We need to come back to Him. Never miss the church meeting. Never miss the opportunity for the hearing of faith. Or your daily reading of the Bible. In your group meeting. The word is going out. It's not just the atmosphere. It's the word that works. Gal. 5:6, "faith avails, operating through love." faith operates. Heb 4:16, mix the word with faith. Then the word becomes operative. the "profit" of the all-inclusive Spirit. The faith does many things for us. We interupt the process by depending on ourselves.
+
+### E. not to think more highly of ourselves (rom 12:3). 
+
+how much faith God apportions to us depends on our attitude, not being proud. we compare ourselves with others. jealousy comes in. how do you overcome? if you have this verse within you. the lord will bring it back at that time and we can agree with it.
 
 ### F.
 
