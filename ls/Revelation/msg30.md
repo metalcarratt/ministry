@@ -17,3 +17,11 @@ the place is:
 - keeping His Word of endurance in the face of (especially religious) persecution
 - keeping His works - to thyatira. the catholic church has died the Lord's death and resurrection by saying that salvation can be attained by paying money, praying to mary or saints or doing good works
 
+### the rapture of the majority
+
+- 1 thes 4:15 indicates, "who are livng" and who "remain".
+- at the last trumpet
+- afrer antichrist is revealed
+- after the beast forces people to worship his image
+- after satan makes war with God's people
+- in the air and on the cloud
