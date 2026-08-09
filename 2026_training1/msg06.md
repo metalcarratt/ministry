@@ -1,4 +1,4 @@
-# Message Three - Brothers of Christ as the Firstborn of God
+# Message Six - Brothers of Christ as the Firstborn of God
 
 we have a certain status. stone and sheep are certain status. being brothers of Christ is also related to our status.
 
