@@ -27,3 +27,11 @@ what kind of man we need to be to enter the good land:
 - subject to God
 - mind tbe innward parts of God
 - live in God's presence
+
+#### A God of love and righteousness
+
+some saints are too free and do not fear God. if we intend to enter the good land we must be righteous in our living.
+
+#### we need to match the Giver of the inheritance
+
+to receive the inheritance we must be holy as He is holy. otherwise He may be with us in our living, but not in our fighting.
