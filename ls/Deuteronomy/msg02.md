@@ -35,3 +35,13 @@ some saints are too free and do not fear God. if we intend to enter the good lan
 #### we need to match the Giver of the inheritance
 
 to receive the inheritance we must be holy as He is holy. otherwise He may be with us in our living, but not in our fighting.
+
+#### reviewing the past
+- God's leading, to know the heart and hand of God
+- man's failures, to know himself, and have no trust in himself.
+
+#### knowing the future
+- God's love and government
+- man's failure, know ourselves, no trust in ourselves
+
+#### utlimately God will be successful to bring us into the good land in spite of our failures in loving Him, fearing Him or being faithful to Him
