@@ -1,5 +1,7 @@
 # Message Twelve - The Bridegroom, the maturity of the Bride, and being a warrior to defeat God's enemy
 
+(Ron)
+
 ## I. Christ is the Bridegroom
 
 The most pleasant Person. Four ways to enjoy Him as the Bridegroom: as a companion in the bridechamber; as guest at His wedding feast; as virgins; as the Bride.
