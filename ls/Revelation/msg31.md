@@ -12,3 +12,5 @@ the day, remaining open to Him and exercising our spirit and asking Him to fill 
 **the expression** - we need to be filled with the Spirit of God. this is what makes it possible for us to overflow in the meetings. if we try to force someone to function, this is like pushing around a flat tire and does not work. instead they need to be filled with the Holy Spirit.
 
 > Pushing never helps. When a tire becomes flat, it is betrer not to roll it around, for the more you roll it, the more damaged it will become. However, none of us should be a flat tire. Instead we should be filled eith *pneuma*.
+
+**the reproduction** - the one lampstand in exodus signifying Christ, and the lamlstand in zechariah signifying the Spirit bas become the seven lampstands in Revelation. the more we care for the element, ths form and the expression, the more we will have the reproduction.
