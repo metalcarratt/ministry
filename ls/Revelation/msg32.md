@@ -10,3 +10,5 @@ is a matter of building, a matter of dependence)
 
 
 > I am deeply burdened! It does not matter whether you are good or bad, holy or unholy, spiritual or unspiritual. The only thing that matters is whether or not you have been touched by the Lord and transformed. We must be willing to open ourselves and say, "Lord, get through. Lord flow in, through, and out of me and carry away every particle of my natural element. Lord I hate the outward improvement and am tired of being corrected outwardly. I am tired of religion and Bible knowledge. I am tired of being individually spiritual. Lord, I am desperate about my condition because I have so little of Your divine eseence. I have been tsught and edified for years. But still I am what I am."
+
+philadelphia is the church of brothrrly love, but this love is God's divine love. any love from ourselves is honey and is as hateful to God as leaven.
