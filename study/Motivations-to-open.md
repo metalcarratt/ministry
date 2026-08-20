@@ -14,11 +14,25 @@ Lam. 3:22
 Luke 1:78 
 > Because of the merciful compassions of our God, in which the rising sun will visit us from on high,
 
+Eph. 2:4
+> But God, being rich in mercy, because of His great love with which He loved us,
+
 ### As a vessel of honor:
 
 #### as a teacher
 
 we are motivated to be those nourished with the healthy words of life, that we would have a portion to teach others. (??)
+
+2 Tim. 2:1-2 
+> You therefore, my child, be empowered in the grace which is in Christ Jesus;
+> And the things which you have heard from me through many witnesses, these commit to faithful men, who will be competent to teach others also.
+
+2 Tim. 1:13-14
+> Hold a pattern of the healthy words that you have heard from me, in the faith and love which are in Christ Jesus.
+> Guard the good deposit through the Holy Spirit who dwells in us.
+
+1 Tim. 6:20
+> O Timothy, guard the deposit, turning away from profane, vain babblings and oppositions from what is falsely called knowledge,
 
 #### as a solider
 
