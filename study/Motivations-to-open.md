@@ -40,6 +40,19 @@ we are motivated to be those nourished with the healthy words of life, that we w
 
 - because of the severe attack of death from Satan against the church, we are motivated to be full of life (to be in ascension) to reign in life over sin, Satan and death.
 
+2 Tim. 2:3-4
+> Suffer evil with me as a good soldier of Christ Jesus.
+> No one serving as a soldier entangles himself with the affairs of this life, that he may please the one who enlisted him.
+
+Rom. 8:6
+> For the mind set on the flesh is death, but the mind set on the spirit is life and peace.
+
+Rom. 8:11 
+> And if the Spirit of the One who raised Jesus from the dead dwells in you, He who raised Christ from the dead will also give life to your mortal bodies through His Spirit who indwells you.
+
+Rom. 5:17 
+> For if, by the offense of the one, death reigned through the one, much more those who receive the abundance of grace and of the gift of righteousness will reign in life through the One, Jesus Christ.
+
 #### as an athlete
 
 because of the desire to win the reward of the crown of righteousness, we are motivated to practice our skill of remaining open to the Lord, that we would run lawfully within the lanes, by fleeing into Christ as our refuge from all negative things,  and pursuing, even persecuting, Christ, that we may lay hold of Him as our reward.
