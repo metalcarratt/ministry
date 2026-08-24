@@ -18,3 +18,6 @@ become the stronger part, the man-child.
 > saturate and permeate our whole being. ... We cannot produce or manufacture
 > this man-child, we must receive something of Christ and be made pregnant
 > of Him. Soemthing kf Chrost mudt enter into our being.
+
+the woman is corporate, not individual, thus any divisive thought takes us out
+of the woman. receiving such thoughts are also a form of spiritual fornication.
