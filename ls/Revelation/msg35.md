@@ -11,3 +11,10 @@ fornication is to take another source other than the Lord.
 
 the application is we need to take in something of Christ every day. then we can
 become the stronger part, the man-child.
+
+> Although we need to pray more, if we simply pray in a common way, we shall not be
+> supplied. We need to constantly be open to our Husband. We must permit the element
+> of Christ, the divine constituent of Christ, to work in us continually to
+> saturate and permeate our whole being. ... We cannot produce or manufacture
+> this man-child, we must receive something of Christ and be made pregnant
+> of Him. Soemthing kf Chrost mudt enter into our being.
