@@ -21,3 +21,13 @@ thought that:
 - God blesses our obedience and faithfulness
 - turning our heart away from God results in tragedy
 
+the review covers:
+- at the mount of God, receiving the revelation of the law, the ark, the tabernacle, the building, thd priesthood, and being formed into an army
+- being led by God
+- failing God at kadesh barnea because of their unbelief
+- wandering for 38 years
+- slaying Sihon and Og, the guards to the entrance of the good land.
+
+unbelief equals disobedience to God. the NT is a ministry and word of faith. unbelief damages us and leads to tragedy.
+
+> With respect to believing in God, we should forget out past, but with respect to knowing God and ourselves we should remember our past.
