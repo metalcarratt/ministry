@@ -5,3 +5,5 @@ positive purposes:
 - to consume all the unbelieving ones
 - to produce a new generation
 
+God was the One who defeated the kings Sihin and Og, and this was a guarantee
+that God would do the same in all the good land where God would bring them in.
