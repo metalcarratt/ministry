@@ -11,3 +11,5 @@ parallel between tbe book of Ephesians and the picture of the woman in Rev. 12.
   - eph 6:18 by mean of all prayer
 
 > The most effective way to war against the enemy is to pray-read the Word, and the best portion of the Word to pray-read is the book of Ephesians. If you pray-read this book in a concentrated way for a period of time, you will be strengthened.
+
+taking the word in John is for food, but in Ephesians it is for a sword. when we pray-read the word the negative things of satan and the flesh in hs are killed. but the primary thing killed is our opinion. we have so many opinions in us. and our opi ions prevent us from being built up. we may have been with the saints for many years but are not built up with them. we may have been married for many years but are not built up sith our wife or husband because we both still hold on to many opinions about each other.
