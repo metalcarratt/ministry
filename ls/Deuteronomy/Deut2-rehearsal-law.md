@@ -4,6 +4,7 @@
 
 Dt 5 :2 
 > Jehovah our God made a covenant with us at Horeb. 
+
 Dt 5 :3
 > Not with our fathers did Jehovah make this covenant, but with us, we who are all here alive today.
 
