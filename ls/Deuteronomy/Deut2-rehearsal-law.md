@@ -2,8 +2,10 @@
 
 #### The covenant God made with the fathers was also made with the second generation, to whom Moses spoke the rehearsal of the law
 
-Dt 5 :2 Jehovah our God made a covenant with us at Horeb. 
-Dt 5 :3 Not with our fathers did Jehovah make this covenant, but with us, we who are all here alive today.
+Dt 5 :2 
+> Jehovah our God made a covenant with us at Horeb. 
+Dt 5 :3
+> Not with our fathers did Jehovah make this covenant, but with us, we who are all here alive today.
 
 
 #### the first commandment - no other God beside Jehovah
