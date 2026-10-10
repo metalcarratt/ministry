@@ -287,5 +287,7 @@ Dt 8 :14
 
 Dt 8 :17 
 > And you say in your heart, My strength and the might of my hand have gotten me this wealth.
-Dt 8 :18 But you shall remember Jehovah your God, for it is He who gives you strength to gain wealth, so that He may establish His covenant, which He swore to your fathers, as it is this day.
+
+Dt 8 :18
+> But you shall remember Jehovah your God, for it is He who gives you strength to gain wealth, so that He may establish His covenant, which He swore to your fathers, as it is this day.
 
