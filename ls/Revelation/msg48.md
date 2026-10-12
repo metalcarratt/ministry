@@ -20,3 +20,7 @@ he also believes that the events in europe will cause many in the US to turn to 
 to abandon catholicism and the denominations, and turn to the way of the Lords recovery
 and grow in life. this will enable them to be reaped during the time of the harvest.
 
+
+the winepress of the fury of God - in the bible, figs symbolise the nation of Israel, wheat signifyies the believers, and the grapevine symbolises the nations of the world. whereas wheat needs to be dried up to be ripened, grapes need to be filled with water. the worldly peoole are seeking to be filled with more worldly water whereas the believers are having the worldly water dried up.
+
+> whether you are wheat or a grape depends on whether you are dried up or filled with the earthly water. If your ambition is to gain more worldly water, then you are living like the grapes, not like the wheat.
