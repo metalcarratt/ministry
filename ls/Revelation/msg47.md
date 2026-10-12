@@ -3,3 +3,6 @@ persecuted Jews and suffering christians after the rapture of the firstfruits, w
 will become the "sheep", the citizens of the kingdom. they will enter into thw realm
 of life, having a restored human life, with increased length of days, but not be
 regenerated.
+
+destructiin of religious babylon - the rider of the beast. antichrist will be used by
+the Lord to destroy both catholicism and judaism.
