@@ -18,3 +18,4 @@ in the first half of the book of revelation the throne with the rainbow is the c
 
 the angels who come to pour out the bowls are dressed in priestly robes, not military uniform. this indicates that their office is fulfilling the prayers of the late overcomers. these overcomers did not pray for vengence, rather they praised God. 
 
+these angels come out from the temple, from the throne. this shows the mingling of judgment with expression. the purpose of judgment is to gain expression. this is true also in our spiritual life. the continuation of this chapter, 16, is 19, the coming of the bride (17 and 18 are an insertion concerning babylon). this further reinforces the thought that judgment is for God's expression, His testimony.
