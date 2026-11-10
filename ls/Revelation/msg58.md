@@ -4,3 +4,9 @@ coming, producing the sun of the woman; and the millenium, where God complete Hi
 perfecting of His people from tbe 2nd and 3rd dispensations. after this God has no more
 need for the old heaven and old earth. thus they will be rolled up and burned up and
 there will be a new heaven and a new earth.
+
+in the new heaven and new earth there will be no remembrance of the old earth.
+the nations will enjoy Gods common blessing, the blessing of no death, no tears,
+no pain. the believers and the jews will enjoy the portion of the new jerusalem,
+that is the river of water of life, and to serve God in His presence. the
+unbelievers portion is the lake of fire.
