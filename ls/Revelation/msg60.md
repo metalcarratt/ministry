@@ -7,3 +7,6 @@ person, and to be the building, the city of God, is to be built up.
 the gates of the city have the names of the twelve tribes of Israel. firstly the
 gospel came out through the apostles, whom were all Jews. then the Gentiles came
 in to the city through them.
+
+the gates are of the twelve tribes of israel, but the foundations of the wall are
+the apostles.
