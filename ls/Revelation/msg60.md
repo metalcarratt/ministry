@@ -1,3 +1,5 @@
+NJ1
+
 God's building is not a physical city. the matter of the stone is all throughout
 the Bible, especially precious stones. The Lord told Peter that he was a stone and
 that the revelation of Christ is the rock upon which His house is built. Peter also
