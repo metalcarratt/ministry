@@ -11,3 +11,5 @@ NJ it is the whole city, 144000 cubits. this is 12 x 12 x 1000, which is absolut
 perfectness. the holy of holies is man living and walking in the presence of God. in
 the OT only the high priest could enter, and only once a year, but now through the
 blood of Christ, all the redeemed ones can enter the holy of holies and live there.
+
+the height of the wall is 144 cubits, the cubit of an angel. this indicates the wall should be in resurrection. (how high and how strong must be the defence of God's building). we might be very exercised to resist our anger by strongly exercising our spirit, but how about strongly exercising our spirit to resist our natural love? we must only love others with a resurrected love.
