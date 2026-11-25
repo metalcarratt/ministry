@@ -13,3 +13,8 @@ the OT only the high priest could enter, and only once a year, but now through t
 blood of Christ, all the redeemed ones can enter the holy of holies and live there.
 
 the height of the wall is 144 cubits, the cubit of an angel. this indicates the wall should be in resurrection. (how high and how strong must be the defence of God's building). we might be very exercised to resist our anger by strongly exercising our spirit, but how about strongly exercising our spirit to resist our natural love? we must only love others with a resurrected love.
+
+we shkuld not love in a natural way. for example, getting closer to someone, using each others things, does not mean you are getting built up with that person. more likely you are indulging in your natural choice. the more we love others the more we would have the proper distance. br Lee gave an examole of wanting to give a bible to a poorer sister who served the Lord. he waited for the Lords timing and then gave it anonymously. her testimony was that she gained the Lord by depending on Him over those days when she didnt have the bible.
+
+> I like to see the brothers and sisters growing in life and experiecing the building, but I do not like to see any natural love. It is better to keep a distance between yourself and others. ... You may spend so much time with that 
+particular brother because he matches your taste. You may think that you are growing in life as you fellowship with him. Actually, because your love for him is natural, you are not growing at all. The more we love others, the greater should be the distance between ourselves and them.
