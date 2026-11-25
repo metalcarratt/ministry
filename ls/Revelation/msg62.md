@@ -7,4 +7,4 @@ one another (1 cor 1:10).
 
 > Thus we all must imitate one another and copy one another. The sisters must imitate the brothers and the brothers must imitate the sisters. This does not mean to copy the natural characteristics of others. It means to cooy the jasper, to copy the substance, the color and appearance.
 
- 
+jasper is not something created by God, it is something created and then transformed by God. diamond is like this. we are all going through this process.
